@@ -1,4 +1,4 @@
-<td align="center"><a target="_blank" href="https://raw.githubusercontent.com/szzd1/szzd1.github.io/master/1.JPG"><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG" style="max-width:100%;"></a></td><br>
+
 <strong>可向 fr45tr@gmail.com 索取用于推广的网址。</strong>
 <strong>如果页面"error"出错，刷新一下。</strong><br>
 <hr>
