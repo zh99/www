@@ -2,9 +2,11 @@
 <strong>可向 fr45tr@gmail.com 索取用于推广的网址。</strong>
 <strong>如果页面"error"出错，刷新一下。</strong><br>
 <hr>
+<br>
 <h3>
-<p><strong>简易网址</strong></p>
+<strong>简易网址</strong>
 </h3>
+<br>
 <strong>用于电脑： <a href="http://2ccc.cf">2ccc.cf</a></strong><br>
 <strong>用于电脑： <a href="https://git.io/g">git.io/g</a></strong><br>
 <strong>用于电脑： <a href="http://x.co/2333">x.co/2333</a></strong><br>
