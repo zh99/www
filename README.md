@@ -20,14 +20,14 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://s3-us-west-1.amazonaws.com/com8/index.html" rel="nofollow">入口</a>
-      <a href="http://61.228.213.249/1" rel="nofollow">入口</a>
-      <a href="https://vzqew.chunlan.cf/1" rel="nofollow">入口</a><br>
-      <a href="https://t.cn/Rr6VYnR" rel="nofollow">入口</a>
-      <a href="http://61.228.177.200/1" rel="nofollow">入口</a>
+      <a href="http://219.85.106.11/1" rel="nofollow">入口</a>
+      <a href="https://tbkci.chunlan.cf/1" rel="nofollow">入口</a><br>
+      <a href="https://t.cn/Rr6MZ3A" rel="nofollow">入口</a>
+      <a href="http://61.230.20.75/1" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="https://aaejgm.chunan.ml/1" rel="nofollow">入口</a>
-      <a href="http://noesmy.inizwz.ml/1" rel="nofollow">入口</a>
-      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?wrhtwwm" rel="nofollow">入口</a><br>
+      <a href="https://lxvqpf.chunan.ml/1" rel="nofollow">入口</a>
+      <a href="http://ygayi.iwmakxf.cf/1" rel="nofollow">入口</a>
+      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?dphi" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -42,17 +42,17 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/Rr6VYrp" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/Rr6fdXj" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/Rr6fdNz" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/Rr6MZeu" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/Rr6Mwhf" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/Rr6MwLS" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d6ab2knqhcqe4.cloudfront.net/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="https://d6ab2knqhcqe4.cloudfront.net/0/" rel="nofollow">神州正道</a></p>
 <p><a href="https://d6ab2knqhcqe4.cloudfront.net/69/" rel="nofollow">明见网</a></p>
 <p><a href="https://d6ab2knqhcqe4.cloudfront.net/88/" rel="nofollow">起诉江泽民</a></p>
-<p><a href="https://t.cn/Rr6frs5" rel="nofollow">三退自救1</a></p>
+<p><a href="https://t.cn/Rr6MZ8q" rel="nofollow">三退自救1</a></p>
 <p><a href="https://d6ab2knqhcqe4.cloudfront.net/tui/" rel="nofollow">三退自救2</a></p>
-<p><a href="https://t.cn/Rr6frdN" rel="nofollow">网门视频1</a></p>
-<p><a href="http://azscmt.qulyn.ml/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="https://t.cn/Rr6MZWi" rel="nofollow">网门视频1</a></p>
+<p><a href="http://bcurqq.kzmobjh.ml/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
