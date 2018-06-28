@@ -18,13 +18,13 @@
 </h3>
       <a href="https://t.cn/Rrlq0eB" rel="nofollow">入口</a>
       <a href="http://219.85.106.63/1" rel="nofollow">入口</a>
-      <a href="https://tpvmkdyc.chunlan.cf/1" rel="nofollow">入口</a><br>
+      <a href="https://mlhsvm.chunlan.cf/1" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-northeast-1.amazonaws.com/fzqk/xeqm.html" rel="nofollow">入口</a>
       <a href="http://61.228.187.220/1" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="https://qqeqw.chunan.ml/1" rel="nofollow">入口</a>
-      <a href="http://ifdzlg.irppvk.gq/1" rel="nofollow">入口</a>
-      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?rau" rel="nofollow">入口</a><br>
+      <a href="https://rdfnzf.chunan.ml/1" rel="nofollow">入口</a>
+      <a href="http://zeicsbw.ultteoj.gq/1" rel="nofollow">入口</a>
+      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?hovwxpqh" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -49,7 +49,7 @@
 <p><a href="https://t.cn/Rrlq0rR" rel="nofollow">三退自救1</a></p>
 <p><a href="https://dba7ubr32defp.cloudfront.net/tui/" rel="nofollow">三退自救2</a></p>
 <p><a href="https://t.cn/Rrlq03z" rel="nofollow">网门视频1</a></p>
-<p><a href="http://wdzgvthv.yggjzqy.ga/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://fpjqdxk.otxxmhrm.ga/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
