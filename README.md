@@ -17,14 +17,14 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://t.cn/RrQym8H" rel="nofollow">入口</a>
-      <a href="http://219.85.106.91/1" rel="nofollow">入口</a>
-      <a href="https://qqagwp.chunlan.cf/1" rel="nofollow">入口</a><br>
-      <a href="https://s3-ap-northeast-1.amazonaws.com/fzqk/xeqm.html" rel="nofollow">入口</a>
-      <a href="http://61.231.161.38/1" rel="nofollow">入口</a>
-      <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="https://wyacfrf.chunan.ml/1" rel="nofollow">入口</a>
-      <a href="http://wdsbswi.tojzsp.gq/1" rel="nofollow">入口</a>
-      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?xgezfmsugz" rel="nofollow">入口</a><br>
+      <a href="https://t.cn/RrQAeF9" rel="nofollow">入口</a>
+      <a href="https://t.cn/RrQLJAb" rel="nofollow">入口</a><br>
+      <a href="https://t.cn/RrQ2PV2" rel="nofollow">入口</a>
+      <a href="https://t.cn/RrQ2hZn" rel="nofollow">入口</a>
+      <a href="https://t.cn/RrQLJ3T" rel="nofollow">入口</a><br>
+      <a href="https://t.cn/RrQ2zhW" rel="nofollow">入口</a>
+      <a href="https://t.cn/RrQ2zEO" rel="nofollow">入口</a>
+      <a href="https://t.cn/RrQ2ZNK" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -49,7 +49,7 @@
 <p><a href="https://t.cn/RrQymWQ" rel="nofollow">三退自救1</a></p>
 <p><a href="https://d1el1ml9wwq7j6.cloudfront.net/tui/" rel="nofollow">三退自救2</a></p>
 <p><a href="https://t.cn/RrQymKX" rel="nofollow">网门视频1</a></p>
-<p><a href="http://xydoml.hefsaw.cf/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://knfki.wqshtma.gq/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
