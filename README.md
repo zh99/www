@@ -49,7 +49,7 @@
 <p><a href="https://t.cn/RrmqksF" rel="nofollow">三退自救1</a></p>
 <p><a href="https://d1el1ml9wwq7j6.cloudfront.net/tui/" rel="nofollow">三退自救2</a></p>
 <p><a href="https://t.cn/Rrmqk3e" rel="nofollow">网门视频1</a></p>
-<p><a href="http://wfnhbqp.bnnodj.gq/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://domptpg.raiyvno.gq/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
