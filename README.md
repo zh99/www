@@ -75,11 +75,16 @@
 <a id="user-content-聚缘阁代理一-1" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%80-1" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://x.co/ddf" rel="nofollow">聚缘阁代理一</a>
 </p>
 <p>
-<a id="user-content-亚马逊镜像" class="anchor" href="#%E4%BA%9A%E9%A9%AC%E9%80%8A%E9%95%9C%E5%83%8F" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>亚马逊镜像</p>
-<p>亚马逊镜像正在调整中。。。</p>
-<h3>
-<a id="user-content-神州正道翻墙代理" class="anchor" href="#%E7%A5%9E%E5%B7%9E%E6%AD%A3%E9%81%93%E7%BF%BB%E5%A2%99%E4%BB%A3%E7%90%86" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://git.io/ccc" rel="nofollow">神州正道翻墙代理</a>
-</h3>
+<a id="user-content-亚马逊翻墙代理" class="anchor" href="#%E4%BA%9A%E9%A9%AC%E9%80%8A%E7%BF%BB%E5%A2%99%E4%BB%A3%E7%90%86" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>亚马逊翻墙代理</p>
+<p>时而可访问 请逐一点击</p>
+<p><strong><a href="https://s3-ap-northeast-1.amazonaws.com/dtw1/dtw.htm" rel="nofollow">入口一</a></strong></p>
+<p><strong><a href="https://s3.ap-northeast-2.amazonaws.com/dtw2/dtw.htm" rel="nofollow">入口二</a></strong></p>
+<p><strong><a href="https://s3-ap-southeast-2.amazonaws.com/dtw3/dtw.htm" rel="nofollow">入口三</a></strong></p>
+<p><strong><a href="https://s3.ca-central-1.amazonaws.com/dtw4/dtw.htm" rel="nofollow">入口四</a></strong></p>
+<p><strong><a href="https://s3.amazonaws.com/dtw5/dtw.htm" rel="nofollow">入口五</a></strong></p>
+<p><strong><a href="https://s3-us-west-2.amazonaws.com/dtw6/dtw.htm" rel="nofollow">入口六</a></strong></p>
+<p><strong><a href="https://s3-us-west-1.amazonaws.com/dtw7/dtw.htm" rel="nofollow">入口七</a></strong></p>
+<p><strong><a href="https://s3-ap-northeast-1.amazonaws.com/dtw0/dtw.htm" rel="nofollow">入口八</a></strong></p>
 <hr>
 <h3><p><strong>图片展</strong></p></h3>
 <img src="https://github.com/szzd1/1/blob/master/t/01.jpg"><br>
