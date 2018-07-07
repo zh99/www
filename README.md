@@ -4,8 +4,8 @@
 <img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br>
 <strong>可向 fr45tr@gmail.com 索取推广网址。如果页面出错，刷新一下。</strong><br>
 <strong>如果微信提示停止访问，点击右上角选择浏览器打开</strong><br>
-<p><strong>如果国内浏览器打不开，用IE，Firefox，Chrome打开</strong></p>
-<p><strong>下载翻墙软件,翻墙更顺利！</strong></p>
+<strong>如果国内浏览器打不开，用IE，Firefox，Chrome打开</strong><br>
+<p><strong>下载翻墙软件,网页打开更顺利！</strong></p>
 <hr>
 <h3>
 <p><strong>简易网址</strong></p>
