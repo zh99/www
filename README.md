@@ -5,7 +5,7 @@
 <strong>可向 fr45tr@gmail.com 索取推广网址。如果页面出错，刷新一下。</strong><br>
 <strong>如果微信提示停止访问，点击右上角选择浏览器打开</strong><br>
 <strong>如果国内浏览器打不开，用IE，Firefox，Chrome打开</strong><br>
-<p><strong>下载翻墙软件,网页打开更顺利！</strong></p>
+<p><strong>下载翻墙软件,打开网页更顺利！</strong></p>
 <hr>
 <h3>
 <p><strong>简易网址</strong></p>
@@ -17,14 +17,14 @@
 <h3>
 <p><strong>动态网</strong></p>
 </h3>
-      <a href="https://t.cn/RdiXSB8" rel="nofollow">入口</a>
-      <a href="https://s3-ap-northeast-1.amazonaws.com/dtw1/dtw.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/dtw2/dtw.html" rel="nofollow">入口</a><br>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/dtw3/dtw.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/dtw4/dtw.html" rel="nofollow">入口</a>
+      <a href="https://t.cn/RdiXSB8" rel="nofollow">入口</a>
+      <a href="https://s3-ap-northeast-1.amazonaws.com/dtw1/dtw.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/dtw2/dtw.html" rel="nofollow">入口</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/dtw3/dtw.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/dtw5/dtw.html" rel="nofollow">入口</a><br>
-      <a href="https://s3-us-west-2.amazonaws.com/dtw6/dtw.html" rel="nofollow">入口</a>
       <a href="https://s3-us-west-1.amazonaws.com/dtw7/dtw.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/dtw8/dtw.html" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/dtw0/dtw.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
@@ -56,7 +56,7 @@
 <p><a href="https://git.io/vEJlj rel="nofollow">无界浏览</a></p>
 <p><a href="https://git.io/fgma" rel="nofollow">自由门安卓版</a></p>
 <p><a href="https://s3.amazonaws.com/693/um.apk" rel="nofollow">无界浏览安卓版</a></p>
-<p><a href="https://git.io/ogatea2">网门安卓版</a></p>
+<p><a href="https://git.io/ogatea2" rel="nofollow">网门安卓版</a></p>
 <p><a href="https://github.com/dtw9/9/raw/master/201861502.apk">聚缘阁安卓版</a></p>
 <p><a href="https://git.io/vQjqe" rel="nofollow">神州正道安卓4.0+（手机版）</a></p>
 <p><a href="https://git.io/vAonz" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
