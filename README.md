@@ -45,9 +45,7 @@
 <p><a href="https://t.cn/RdOWM6j" rel="nofollow">无界浏览</a></p>
 <p><a href="https://t.cn/RdOWIBl" rel="nofollow">三退自救</a></p>
 <p><a href="https://t.cn/RdOWIHn" rel="nofollow">网门视频</a></p>
-<p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
-<p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
-<p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
+<p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
 <p><strong>下载翻墙软件</strong></p>
