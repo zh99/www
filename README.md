@@ -41,8 +41,8 @@
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="https://t.cn/RdHmKBR" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RdHQKQe" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RdHQKBj" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RdHm9vp" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RdHm9LR" rel="nofollow">无界浏览</a></p>
 <p><a href="https://t.cn/RdHmK0P" rel="nofollow">三退自救</a></p>
 <p><a href="https://t.cn/RdHmK6K" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相</a><br></p>
