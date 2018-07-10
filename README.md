@@ -17,7 +17,7 @@
 <h3>
 <p><strong>动态网</strong></p>
 </h3>
-      <a href="https://t.cn/RdQ2tFV" rel="nofollow">入口</a>
+      <a href="https://t.cn/RdQ4DRW" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/dtw4/dtw.html" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/dtw1/dtw.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/dtw2/dtw.html" rel="nofollow">入口</a>
@@ -40,11 +40,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RdQ2c2v" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RdQ2cqN" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RdQ2cMe" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RdQ2t3i" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RdQ2tHO" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RdQ4DrT" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RdQ4kvG" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RdQ4k2Y" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RdQ4DWA" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RdQ4DSk" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
