@@ -17,7 +17,7 @@
 <h3>
 <p><strong>动态网</strong></p>
 </h3>
-      <a href="https://t.cn/RgZ2PgP" rel="nofollow">入口</a>
+      <a href="https://t.cn/RgZUqZI" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/dtw4/dtw.html" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/dtw1/dtw.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/dtw2/dtw.html" rel="nofollow">入口</a>
@@ -40,11 +40,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RgZ2h2T" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RgZ2hxg" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RgZ2hNq" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RgZ2PQk" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RgZ2PpV" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RgZUqtz" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RgZUqSs" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RgZUqju" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RgZUGdE" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RgZUG8A" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
@@ -68,7 +68,7 @@
 <p><strong>【公告】代理大升级，全程SSL加密传送，支持youtube视频、新唐人视频、大纪元视频播放。。。</strong></p>
 <p>聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。<a href="https://github.com/dtw9/9/raw/master/201861502.apk">点击下载</a></p>
 <p>
-<a id="user-content-翻墙入口一" class="anchor" href="#%E7%BF%BB%E5%A2%99%E5%85%A5%E5%8F%A3%E4%B8%80" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://daili-jiami.herokuapp.com/547" rel="nofollow">翻墙入口一</a>
+<a id="user-content-翻墙入口一" class="anchor" href="#%E7%BF%BB%E5%A2%99%E5%85%A5%E5%8F%A3%E4%B8%80" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://x.co/ddf" rel="nofollow">翻墙入口一</a>
 </p>
 <p>
 <a id="user-content-亚马逊翻墙代理" class="anchor" href="#%E4%BA%9A%E9%A9%AC%E9%80%8A%E7%BF%BB%E5%A2%99%E4%BB%A3%E7%90%86" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>亚马逊翻墙代理</p>
