@@ -43,8 +43,8 @@
 <p><a href="https://t.cn/RgSaoyE" rel="nofollow">大纪元新闻</a></p>
 <p><a href="https://t.cn/RgSaofv" rel="nofollow">新唐人视频</a></p>
 <p><a href="https://t.cn/RgSaoSu" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RgSaSB9" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RgSaSHH" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RgSKIfW" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RgSKIUi" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
