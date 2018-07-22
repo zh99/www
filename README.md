@@ -18,14 +18,14 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/whfshzfwin/rw.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/mzpboftti/mtds.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/yizsojwvz/ijut.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/nidjjsyyqf/ghcwr.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/gvgfouaws/xdb.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/qalwciymc/twzkv.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/yyqonrmyxw/mwaf.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/lslstbxop/gbizl.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/eulunlgigm/gtqvy.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/omwsjdtrjt/wwe.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/tbxextwom/gf.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/rnummlzfk/ld.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/hzidezmlqq/eahx.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/eywycwcrr/zz.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/ywdaitfyud/kfdxw.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/egjlexxny/ljon.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -137,4 +137,5 @@
 <img src="https://github.com/szzd1/1/blob/master/t/47.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/48.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/49.jpg"><br>
+<h3><p><strong>涓叡涓庨亾涔夎壇鐭ヤ负鏁岋紝鍦ㄨ繖鍦烘畫閰锋墦鍘嬩腑鎶婃硶鍒朵互鑷抽亾寰蜂鸡鐞嗛兘鎺ㄥ悜宕╂簝鐨勮竟缂橈紝姘戝績涓у敖锛屽ぉ鎬掍汉鎬紒浜轰滑缁堜簬瑙夐啋锛氳缁撴潫杩欒繎鐧惧勾姘戞棌娴╁姭锛岄噸寤虹ぞ浼氶亾寰凤紝鍞ら啋鍥戒汉鑹煡锛屽叏姘戦€€鍑轰腑鍏辨槸鎷晳涓崕姘戞棌鍞竴鍑鸿矾銆備腑鍏辨椿鎽樺櫒瀹樻洕鍏夊悗闇囨儕涓栫晫锛屽ぇ绾厓绀捐銆婁節璇勫叡浜у厷銆嬩互涓嶅彲杈╅┏鐨勪簨瀹炴彮绀轰腑鍏辫繖涓?瑗挎潵骞界伒"鐨勭湡闈㈢洰锛屽畠瀛崇敓鏃犳暟鑵愯触锛屾瘉鍧忎腑鍗庢枃鏄庯紝姣佺伃鍥戒汉閬撳痉锛屽湪涓€鍦哄満鏀挎不杩愬姩涓悶鍣暟鍗冧竾鍚岃優鐢熷懡锛屾槸鐪熷疄鐨勯瓟楝肩粍缁囷紝蹇呴伃澶╄按锛佷腑鍥戒汉浠庡皬鍔犲叆灏戝厛闃熸椂灏卞湪琛€鏃椾笅瀹ｈ獡瑕佹妸鐢熷懡鐚粰瀹冿紝鍦ㄦ"澶╃伃涓叡"涔嬫椂锛岄€€鍏氳В闄ゆ瘨瑾擄紝涓嶄笌鎭堕瓟涓轰紞锛屾棦鏄亾寰疯壇鐭ョ殑閫夋嫨锛屼篃鏄嚜鎴戜繚骞冲畨鐨勫ぉ鎰忓畨鎺掋€傚浠婅秴杩?浜夸汉涓夐€€锛屽叏姘戦€€鍑轰腑鍏憋紝瑙ｉ櫎鑷繁韬笂鐨勮€昏颈鎺堣锛屾案杩滅粨鏉熷叡浜у厷瀵逛腑鍥戒汉鐨勮揩瀹筹紝鑷埄鍒╀粬锛屾槸鎵€鏈夊杽鑹汉浠殑鎰挎湜锛?/strong></p></h3>
 </td></tr></table>
