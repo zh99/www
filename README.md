@@ -18,14 +18,14 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/rxdsckdnmt/xnml.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/xhyizyhnps/cxpi.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/ykdrmztnb/kxywl.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/anvdbjrfbh/dau.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ggoygxesr/augi.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/gibfoqhka/sxjh.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/cmqfvpvyv/nyejy.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/bahxbtpbh/hlpb.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/mgnwiyrgbu/or.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/iqmllotsj/mnuc.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/hvggjgtyp/kfq.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/lygqyswiyg/pasxf.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/omcitfaltd/lvia.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/wlvodecgi/leq.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/ixaufgekqt/vj.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/ecwndgrhqj/fx.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -86,8 +86,7 @@
 <h3>
 <a id="user-content-入口七--入口八" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%83--%E5%85%A5%E5%8F%A3%E5%85%AB" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://s3-us-west-1.amazonaws.com/dtw7/dtw.html" rel="nofollow">入口七</a></strong>  <strong><a href="https://s3-ap-northeast-1.amazonaws.com/dtw0/dtw.html" rel="nofollow">入口八</a></strong>
 </h3>
-<hr>
-<h3><p><strong>图片展</strong></p></h3>
+<hr><h3><p><strong>鍥剧墖灞?/strong></p></h3>
 <img src="https://github.com/szzd1/1/blob/master/t/01.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/02.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/03.jpg"><br>
@@ -136,6 +135,8 @@
 <img src="https://github.com/szzd1/1/blob/master/t/46.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/47.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/48.jpg"><br>
-<img src="https://github.com/szzd1/1/blob/master/t/49.jpg"><br>
-<h3><p><strong>涓叡涓庨亾涔夎壇鐭ヤ负鏁岋紝鍦ㄨ繖鍦烘畫閰锋墦鍘嬩腑鎶婃硶鍒朵互鑷抽亾寰蜂鸡鐞嗛兘鎺ㄥ悜宕╂簝鐨勮竟缂橈紝姘戝績涓у敖锛屽ぉ鎬掍汉鎬紒浜轰滑缁堜簬瑙夐啋锛氳缁撴潫杩欒繎鐧惧勾姘戞棌娴╁姭锛岄噸寤虹ぞ浼氶亾寰凤紝鍞ら啋鍥戒汉鑹煡锛屽叏姘戦€€鍑轰腑鍏辨槸鎷晳涓崕姘戞棌鍞竴鍑鸿矾銆備腑鍏辨椿鎽樺櫒瀹樻洕鍏夊悗闇囨儕涓栫晫锛屽ぇ绾厓绀捐銆婁節璇勫叡浜у厷銆嬩互涓嶅彲杈╅┏鐨勪簨瀹炴彮绀轰腑鍏辫繖涓?瑗挎潵骞界伒"鐨勭湡闈㈢洰锛屽畠瀛崇敓鏃犳暟鑵愯触锛屾瘉鍧忎腑鍗庢枃鏄庯紝姣佺伃鍥戒汉閬撳痉锛屽湪涓€鍦哄満鏀挎不杩愬姩涓悶鍣暟鍗冧竾鍚岃優鐢熷懡锛屾槸鐪熷疄鐨勯瓟楝肩粍缁囷紝蹇呴伃澶╄按锛佷腑鍥戒汉浠庡皬鍔犲叆灏戝厛闃熸椂灏卞湪琛€鏃椾笅瀹ｈ獡瑕佹妸鐢熷懡鐚粰瀹冿紝鍦ㄦ"澶╃伃涓叡"涔嬫椂锛岄€€鍏氳В闄ゆ瘨瑾擄紝涓嶄笌鎭堕瓟涓轰紞锛屾棦鏄亾寰疯壇鐭ョ殑閫夋嫨锛屼篃鏄嚜鎴戜繚骞冲畨鐨勫ぉ鎰忓畨鎺掋€傚浠婅秴杩?浜夸汉涓夐€€锛屽叏姘戦€€鍑轰腑鍏憋紝瑙ｉ櫎鑷繁韬笂鐨勮€昏颈鎺堣锛屾案杩滅粨鏉熷叡浜у厷瀵逛腑鍥戒汉鐨勮揩瀹筹紝鑷埄鍒╀粬锛屾槸鎵€鏈夊杽鑹汉浠殑鎰挎湜锛?/strong></p></h3>
+<img src="https://github.com/szzd1/1/blob/master/t/49.jpg"><br> 
+<h3><p><strong>
+涓叡涓庨亾涔夎壇鐭ヤ负鏁岋紝鍦ㄨ繖鍦烘畫閰锋墦鍘嬩腑鎶婃硶鍒朵互鑷抽亾寰蜂鸡鐞嗛兘鎺ㄥ悜宕╂簝鐨勮竟缂橈紝姘戝績涓у敖锛屽ぉ鎬掍汉鎬紒浜轰滑缁堜簬瑙夐啋锛氳缁撴潫杩欒繎鐧惧勾姘戞棌娴╁姭锛岄噸寤虹ぞ浼氶亾寰凤紝鍞ら啋鍥戒汉鑹煡锛屽叏姘戦€€鍑轰腑鍏辨槸鎷晳涓崕姘戞棌鍞竴鍑鸿矾銆備腑鍏辨椿鎽樺櫒瀹樻洕鍏夊悗闇囨儕涓栫晫锛屽ぇ绾厓绀捐銆婁節璇勫叡浜у厷銆嬩互涓嶅彲杈╅┏鐨勪簨瀹炴彮绀轰腑鍏辫繖涓?瑗挎潵骞界伒"鐨勭湡闈㈢洰锛屽畠瀛崇敓鏃犳暟鑵愯触锛屾瘉鍧忎腑鍗庢枃鏄庯紝姣佺伃鍥戒汉閬撳痉锛屽湪涓€鍦哄満鏀挎不杩愬姩涓悶鍣暟鍗冧竾鍚岃優鐢熷懡锛屾槸鐪熷疄鐨勯瓟楝肩粍缁囷紝蹇呴伃澶╄按锛佷腑鍥戒汉浠庡皬鍔犲叆灏戝厛闃熸椂灏卞湪琛€鏃椾笅瀹ｈ獡瑕佹妸鐢熷懡鐚粰瀹冿紝鍦ㄦ"澶╃伃涓叡"涔嬫椂锛岄€€鍏氳В闄ゆ瘨瑾擄紝涓嶄笌鎭堕瓟涓轰紞锛屾棦鏄亾寰疯壇鐭ョ殑閫夋嫨锛屼篃鏄嚜鎴戜繚骞冲畨鐨勫ぉ鎰忓畨鎺掋€傚浠婅秴杩?浜夸汉涓夐€€锛屽叏姘戦€€鍑轰腑鍏憋紝瑙ｉ櫎鑷繁韬笂鐨勮€昏颈鎺堣锛屾案杩滅粨鏉熷叡浜у厷瀵逛腑鍥戒汉鐨勮揩瀹筹紝鑷埄鍒╀粬锛屾槸鎵€鏈夊杽鑹汉浠殑鎰挎湜锛?
+</strong></p></h3> 
 </td></tr></table>
