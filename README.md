@@ -25,7 +25,7 @@
       <a href="ss" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/oyersdnybq/wqxib.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/dwrnjqojl/bwzfm.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ixnpugpvb/hyd.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/elxhosiixx/qmdsf.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
