@@ -18,14 +18,14 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ttnmlqtjq/yvaj.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/xltoatictm/elutc.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/wngbmjfvs/vxtum.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/zmotwitpcn/hqihg.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/dafymhcjaf/pzoxb.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/lpeqmafhqy/ezu.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/rzixugoih/dtfhc.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/hmsoiepgjy/yo.html" rel="nofollow">入口</a>
       <a href="ss" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/oyersdnybq/wqxib.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/utsjazgitz/dsdaf.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/elyevrcxvs/iiyu.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/dwrnjqojl/bwzfm.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/evnfzjtnfy/zmxck.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -65,21 +65,56 @@
 <h3>
 <p><strong>聚缘阁</strong></p>
 </h3>
-<p>
-<a id="user-content-亚马逊翻墙代理" class="anchor" href="#%E4%BA%9A%E9%A9%AC%E9%80%8A%E7%BF%BB%E5%A2%99%E4%BB%A3%E7%90%86" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>亚马逊翻墙代理</p>
-<p>时而可访问 请逐一点击</p>
-<h3>
-<a id="user-content-入口一-入口二" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%80-%E5%85%A5%E5%8F%A3%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://1yv254yb.6636.cf/?mcluk" rel="nofollow">入口一</a></strong> <strong><a href="https://qg1ad581gk.execute-api.ap-northeast-2.amazonaws.com/d" rel="nofollow">入口二</a></strong>
-</h3>
-<h3>
-<a id="user-content-入口三--入口四" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%89--%E5%85%A5%E5%8F%A3%E5%9B%9B" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://s3-ap-southeast-2.amazonaws.com/dtw3/dtw.html" rel="nofollow">入口三</a></strong>  <strong><a href="https://s3.ca-central-1.amazonaws.com/dtw4/dtw.html" rel="nofollow">入口四</a></strong>
-</h3>
-<h3>
-<a id="user-content-入口五--入口六" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%BA%94--%E5%85%A5%E5%8F%A3%E5%85%AD" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://s3.amazonaws.com/dtw5/dtw.html" rel="nofollow">入口五</a></strong>  <strong><a href="https://s3-us-west-2.amazonaws.com/dtw6/dtw.html" rel="nofollow">入口六</a></strong>
-</h3>
-<h3>
-<a id="user-content-入口七--入口八" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%83--%E5%85%A5%E5%8F%A3%E5%85%AB" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://s3-us-west-1.amazonaws.com/dtw7/dtw.html" rel="nofollow">入口七</a></strong>  <strong><a href="https://s3-ap-northeast-1.amazonaws.com/dtw0/dtw.html" rel="nofollow">入口八</a></strong>
-</h3>
-<p>
-<a id="user-content-聚缘阁代理安卓版" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E5%AE%89%E5%8D%93%E7%89%88" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>聚缘阁代理安卓版:</p>
-<p><a href="https://git.io/jygapk" rel="nofollow">https://git.io/jygapk</a></p>
+<hr>
+<h3><p><strong>图片展</strong></p></h3>
+<img src="https://github.com/szzd1/1/blob/master/t/01.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/02.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/03.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/04.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/05.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/06.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/07.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/08.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/09.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/10.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/11.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/12.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/13.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/14.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/15.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/16.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/17.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/18.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/19.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/20.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/21.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/22.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/23.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/24.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/25.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/26.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/27.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/28.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/29.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/30.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/31.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/32.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/33.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/34.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/35.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/36.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/37.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/38.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/39.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/40.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/41.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/42.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/43.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/44.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/45.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/46.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/47.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/48.jpg"><br>
+<img src="https://github.com/szzd1/1/blob/master/t/49.jpg"><br>
+<h3><p><strong>中共与道义良知为敌，在这场残酷打压中把法制以至道德伦理都推向崩溃的边缘，民心丧尽，天怒人怨！人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族唯一出路。中共活摘器官曝光后震惊世界，大纪元社论《九评共产党》以不可辩驳的事实揭示中共这个"西来幽灵"的真面目，它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天谴！中国人从小加入少先队时就在血旗下宣誓要把生命献给它，在此"天灭中共"之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退，全民退出中共，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p></h3>
+</td></tr></table>
