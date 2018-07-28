@@ -18,9 +18,9 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/wmykdfoyd/jzm.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ywgpofxres/yip.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/jokmmjnchq/xff.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/opsggxrhtb/hjzgh.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/jhtvwzjko/mrhq.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/jrbqfwsdrv/xn.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/lyatygppif/rqc.html" rel="nofollow">入口</a>
