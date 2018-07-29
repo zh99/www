@@ -43,7 +43,7 @@
 <p><a href="https://t.cn/Re6HJt6" rel="nofollow">新唐人视频</a></p>
 <p><a href="https://t.cn/Re6HJ6w" rel="nofollow">无界浏览</a></p>
 <p><a href="https://t.cn/Re6Hxng" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/Re6HxOq" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/Re6RUJG" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
