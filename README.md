@@ -42,8 +42,8 @@
 <p><a href="https://t.cn/ReoHGoR" rel="nofollow">大纪元新闻</a></p>
 <p><a href="https://t.cn/ReoHqVo" rel="nofollow">新唐人视频</a></p>
 <p><a href="https://t.cn/ReoHqXD" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/ReoHG5f" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/ReoHGAQ" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/Reo8x3I" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/Reo8xQt" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
