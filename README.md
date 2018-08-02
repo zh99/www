@@ -19,9 +19,9 @@
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/cjcrwacwer/hkt.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/vacpsagbwm/qgk.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/wryyjprwoy/pwrmm.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/rzueyqrqq/mid.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/dexmqeiprw/jl.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/qqmqhiysiv/hojby.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/idsmffhsgb/lglxd.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/cewqfztuz/qwtv.html" rel="nofollow">入口</a><br>
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/Reucw9p" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/ReucwTs" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/Reucw1J" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/ReucwPb" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/ReucZ1A" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/Reufdew" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/ReufgzB" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/Reufgq8" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/ReufrTx" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/Reufr9e" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
