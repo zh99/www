@@ -18,11 +18,11 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/sdochngec/yfncw.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/zejubcdejx/ditmz.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/qogtbwkelt/llzv.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/nenfacewt/vnn.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/dalybltwcs/mf.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/qxylqttocy/uh.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/txdmtxvdke/bxvgo.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ffyhnxenii/kqdr.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/eprcwpmsz/ucr.html" rel="nofollow">入口</a><br>
 <hr>
