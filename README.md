@@ -17,13 +17,13 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/fxlyqunmlm/zzh.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/zdjylojwb/bxi.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/vjqbchzcmm/lxs.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/ekjrzlomlp/cdu.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/eciiotbbxv/fznb.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/styexrxpcu/nh.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/yjreqfdgk/kivb.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/sugblbdyq/huwsw.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/dnfpewvwgm/ml.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/tubvmpgad/fvxzw.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/tmlebnwze/tb.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/kicowjqwj/pomi.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ffqmlhvury/icbdk.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -64,6 +64,10 @@
 <h3>
 <p><strong>聚缘阁</strong></p>
 </h3>
+<p><strong>欢迎光临聚缘阁git网站</strong></p>
+<p><strong>这里白天封锁厉害</strong></p>
+<p><strong>这里的翻墙网址都是临时的。</strong></p>
+<p><strong>请给聚缘阁来信索取稳定网址。</strong></p>
 <h3>
 <a id="user-content-聚缘阁代理镜像" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E9%95%9C%E5%83%8F" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j" rel="nofollow">聚缘阁代理镜像</a>
 </h3>
