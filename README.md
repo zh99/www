@@ -18,10 +18,10 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/jdbacsbdbt/hae.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/fxwfqcbju/po.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/crkoipbbld/kjfh.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/jatkcbkuc/ujyq.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/dgbdepcgg/gng.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/stpffhqpfh/ob.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/dovlrlqax/igq.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/qppozvrnlv/lnctw.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/pdjebmanr/vsuep.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ycbwhllcgc/lm.html" rel="nofollow">入口</a><br>
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/ResuWZs" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/ResuWGa" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/ResuWMG" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/ResuOug" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/ResuOTH" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/ResBAiy" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/ResBLhC" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/ResBLqs" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/ResBA7D" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/ResBwef" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
