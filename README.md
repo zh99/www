@@ -18,12 +18,12 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/dgbdepcgg/gng.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/dovlrlqax/igq.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/stpffhqpfh/ob.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/qppozvrnlv/lnctw.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ewdojekwu/rhri.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/pdjebmanr/vsuep.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ycbwhllcgc/lm.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/tvfltgxnxs/somkz.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/sewirbwtwh/sb.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/pfncrjzoej/mmjj.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
