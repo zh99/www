@@ -19,11 +19,11 @@
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vgasybsjs/zfftp.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/khafvxazt/df.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/awzabgsyrr/dtdmi.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ezqnlkeqc/hzpfr.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/pfodrfjdr/cnh.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/tnodoarmg/kb.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/qbzkuydhmj/yqxlx.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/imzggraxfj/tgb.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RD4tO7d" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RD4tO4M" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RD4tOfM" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RD4t0Ws" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RD4t0Xx" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RD4fK48" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RD4fKfl" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RD4fK6R" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RD4fohU" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RD4fSDj" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
