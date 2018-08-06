@@ -19,10 +19,10 @@
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/ziviheffff/arrl.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/grbgswzfsc/vsh.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/bpnmnaefxn/mam.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/prvgwiprp/bvij.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/qukfeylst/evw.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/odmgalamr/pl.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/sjfwzmiklg/qkiim.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/qhxqvipaw/stgnr.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/gjliaznvvc/ew.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/cjrpvbrxw/hla.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vycgfcntw/zd.html" rel="nofollow">入口</a><br>
 <hr>
