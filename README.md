@@ -21,10 +21,10 @@
       <a href="https://s3.ap-northeast-2.amazonaws.com/jqjuvcqxl/ok.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/afykkygxsc/ysep.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/zrphfmtmt/jm.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/bhawdlcnw/pdgk.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/joyzjiflpw/gj.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/aupygdzaem/pay.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ctivievnlu/pcy.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/wifvlnbkp/zeji.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/ajsdrapcdw/vhu.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RDfGCO2" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RDfGCma" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RDfGCeC" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RDfGCVP" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RDfGCyZ" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RDftwe8" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RDftA7J" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RDftAbi" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RDftwl8" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RDftwoL" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
