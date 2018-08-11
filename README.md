@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RDWArwL" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RDWUovM" rel="nofollow">大纪元新闻</a></p>
 <p><a href="https://t.cn/RDWArtO" rel="nofollow">新唐人视频</a></p>
 <p><a href="https://t.cn/RDWArS6" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RDWAB0B" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RDWABM5" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RDWUSak" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RDWUSbq" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
