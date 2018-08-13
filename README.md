@@ -18,12 +18,12 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/clypjyeyh/yc.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/scqswlvmig/fir.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/qxigzzzwyt/khwio.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/erxayljsp/pns.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/khksmiasgp/vraxx.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/jahwbisdkr/autx.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/qbcgdmzzhx/ce.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/owdoplxsg/obkqq.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/qusadvtah/eilgn.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/lgqxjymtzj/vf.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/amlwoskyxt/siyob.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RDEBjch" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RDEBYta" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RDEBTUE" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RDEBlTS" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RDEBloU" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RDEgLQz" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RDEgLBG" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RDEgyw6" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RDEgws2" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RDEgwRa" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
