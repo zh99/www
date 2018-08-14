@@ -20,10 +20,10 @@
       <a href="https://s3.ap-southeast-2.amazonaws.com/gumzuxklj/hdcwx.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/kjlklhouh/qtt.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ofiyvfrnj/yzy.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/hgttajidp/rnr.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/rtqgjpkwu/riw.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/lguukukxeb/iwz.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/mozgswcwzc/bc.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/wkxbppdoc/xh.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/qtzcpnahgk/cdshf.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/mfbdxfpkot/vrads.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RDucs5Z" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RDucsoh" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RDucsjV" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RDucF1I" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RDucFWR" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RDuxhAd" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RDuxhIa" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RDuxhC8" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RDuxPj7" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RDuxP6J" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
