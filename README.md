@@ -23,8 +23,8 @@
       <a href="https://s3.amazonaws.com/mpiedikzx/uy.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/jnphknjel/rkyft.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/hbvbhepiu/bzv.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/mrggncdod/vgcc.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/bfqpyieuo/ghb.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/fduaxsennq/pzj.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
