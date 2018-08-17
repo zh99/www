@@ -17,14 +17,14 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/uxwnrkwzn/bff.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/kkqfuipde/lvga.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/tamwquedbx/dgl.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/tuqwsdphg/amook.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/rcolthhyy/wrw.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/zzyadfslgb/ig.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/tdblzlxez/dfla.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/nqhqdvgsni/aiipr.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/uautmokqv/sfj.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/cbhupkkbl/kypj.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/kjbslcktnp/coch.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/zntjugqurw/nxtvl.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
@@ -42,8 +42,8 @@
 <p><a href="https://t.cn/RkwOrWA" rel="nofollow">大纪元新闻</a></p>
 <p><a href="https://t.cn/RkwOrmq" rel="nofollow">新唐人视频</a></p>
 <p><a href="https://t.cn/RkwOrk0" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RkwOr54" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RkwOrPH" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/Rkwj9Bv" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/Rkwj9lv" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
