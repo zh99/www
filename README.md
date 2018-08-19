@@ -20,10 +20,10 @@
       <a href="https://s3.us-west-1.amazonaws.com/xmzuqydjnl/cvm.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/ezwgfddli/nb.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/pavimikrw/gxdc.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/gebyovqqgg/zd.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/zkvuykftmj/upz.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/lzxdilfgri/buoa.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/kmbpflrbw/zd.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/fodgafnoqs/ct.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/uqpwtltmbj/weq.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/ijtdyyevy/zs.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/jyuogupkwa/edbr.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/ktpkevdyu/mgri.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
