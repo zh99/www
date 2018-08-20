@@ -19,10 +19,10 @@
       <a href="http://955.cc/?mhg" rel="nofollow">入口</a>
       <a href="http://t.cn/RkJtfiz" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/kqrwzybzs/dq.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/udzhbjfcm/nth.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/pzvhwdjwbk/yfjz.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ajelwjawpe/bbk.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/emwzjjduaa/cdrls.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/otauowbalj/ftxi.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/jnysgcxjda/ijvdv.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/bdkhzdgtx/oqkms.html" rel="nofollow">入口</a><br>
 <hr>
