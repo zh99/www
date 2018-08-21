@@ -16,7 +16,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://mrw.so/4TGNEE" rel="nofollow">入口</a>
+      <a href="http://so8.co/pEr" rel="nofollow">入口</a>
       <a href="http://t.cn/RkoS5hs" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/opqxgluqxv/zdq.html" rel="nofollow">入口</a>
@@ -24,7 +24,7 @@
       <a href="https://s3.ap-northeast-2.amazonaws.com/aqoighjzns/yd.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/yzdlsjladh/tlawq.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/viyumvlptg/tsklu.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/pwqzouzyq/bk.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
@@ -41,7 +41,7 @@
 <hr>
 <p><a href="https://t.cn/RkoS522" rel="nofollow">大纪元新闻</a></p>
 <p><a href="https://t.cn/RkoS54D" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RkoXqPD" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RkoS5cM" rel="nofollow">无界浏览</a></p>
 <p><a href="https://t.cn/RkoSqDN" rel="nofollow">三退自救</a></p>
 <p><a href="https://t.cn/RkoSqrf" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
