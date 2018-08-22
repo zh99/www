@@ -20,8 +20,8 @@
       <a href="http://t.cn/RkKghUA" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/logcflxetz/sx.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/cpvqgdqwko/cj.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/nfkuwsehoq/gp.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/mmdvrmytqy/dqoj.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/xpwlxxhoyo/veh.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/qjqkymlxgf/ut.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/ticiesdnea/zk.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
