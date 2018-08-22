@@ -16,13 +16,13 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://955.cc/?s3s" rel="nofollow">入口</a>
-      <a href="http://t.cn/Rk9epK0" rel="nofollow">入口</a>
+      <a href="http://c7.gg/azBJr" rel="nofollow">入口</a>
+      <a href="http://t.cn/RkCvUsQ" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/tbzfvmpgvc/diem.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/qcqwnruzk/rv.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/wwpvunnhdq/yn.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/mqckzglpug/kl.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/qtzvkjffkc/vvm.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/agidghgxp/ijjin.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/czoxxivfj/gcko.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/cyupzgqks/vfw.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/gjmaazzapo/zjaje.html" rel="nofollow">入口</a><br>
 <hr>
@@ -42,8 +42,8 @@
 <p><a href="https://t.cn/Rk9epla" rel="nofollow">大纪元新闻</a></p>
 <p><a href="https://t.cn/Rk9epEA" rel="nofollow">新唐人视频</a></p>
 <p><a href="https://t.cn/Rk9epdI" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/Rk9epIM" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/Rk9epyo" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RkCvU3x" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RkCvUYu" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
