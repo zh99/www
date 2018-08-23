@@ -20,10 +20,10 @@
       <a href="http://t.cn/RkWjcfS" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/wbccslknb/sj.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/khoiqknawx/xef.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/dhucfqkjo/avtii.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/prsfngsjr/tzt.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/vsaknspbw/pth.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/yvjqcrzjit/szv.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/gknxltsomx/cg.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/hiabuzqqvc/xs.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
