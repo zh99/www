@@ -19,11 +19,11 @@
       <a href="http://t.cn/RkT1r1x" rel="nofollow">入口</a>
       <a href="http://t.cn/RkTsGY9" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/bmjizbaet/wel.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/gdizgrhjo/gmiu.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/piqysqdfyc/okmsz.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/pyzpvekgn/tnlee.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/pbtxjkzyjj/ljiyu.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/haysonuwd/xu.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/vqhfyufvoy/uo.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
