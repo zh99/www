@@ -16,12 +16,12 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://t.cn/RkE8hFP" rel="nofollow">入口</a>
-      <a href="http://t.cn/RknaGhQ" rel="nofollow">入口</a>
+      <a href="http://t.cn/RkEQsXm" rel="nofollow">入口</a>
+      <a href="http://t.cn/RknKs8h" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/xonzoeijh/vqbl.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/lcfcavcnaf/eeqxy.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/jvwkmjrswu/xzlwj.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/bmctudfws/yqwh.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/pbgfvzljxd/mimg.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/oqjqpxbjdm/hb.html" rel="nofollow">入口</a><br>
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RknaGyU" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RknaGc8" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RknaGXd" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/Rknab3s" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RknabWN" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RknKs18" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/Rkn9vPz" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/Rkn9vUg" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RknKsOw" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RknKsSj" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
