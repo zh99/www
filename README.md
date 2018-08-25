@@ -16,14 +16,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://c7.gg/a2Tba" rel="nofollow">入口</a>
+      <a href="http://t.cn/RkujOA1" rel="nofollow">入口</a>
       <a href="http://t.cn/Rk3Uo9B" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/lilkkqqrt/dg.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/jjdwcpelur/vk.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/mxjzifhxb/vcjjg.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/egbkiamhhn/ivepw.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/xugtmegan/tpik.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/stbgvettqx/eu.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/zfzbnvswwu/fe.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/jljxtmcgs/ler.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/rmfvhdnjx/tsi.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -40,8 +40,8 @@
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="https://t.cn/Rk3UomP" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/Rk37Lnv" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/Rk37y2w" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/Rk3UKhS" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/Rk3UK5J" rel="nofollow">无界浏览</a></p>
 <p><a href="https://t.cn/Rk3UotA" rel="nofollow">三退自救</a></p>
 <p><a href="https://t.cn/Rk3USkF" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
