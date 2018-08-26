@@ -16,14 +16,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://dlj.bz/w4hadv" rel="nofollow">入口</a>
-      <a href="http://t.cn/Rk1sFEt" rel="nofollow">入口</a>
+      <a href="http://t.cn/Rk1aJx2" rel="nofollow">入口</a>
+      <a href="http://t.cn/RkBzRBp" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.amazonaws.com/bdwsnkacy/dqbv.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/xtyxsogffg/bqgj.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/hsanugmjn/icutr.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/fisjlvuspm/ev.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/rtthezbry/gk.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ugnjvhjyh/zflaw.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/Rk1sFer" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/Rk1ssw4" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/Rk1ssqu" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/Rk1sFC8" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/Rk1sFt4" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RkBzEZu" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RkBzEq8" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RkBzE6l" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RkBzRTS" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RkBzRXM" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
@@ -85,7 +85,7 @@
 <a id="user-content-聚缘阁视频网" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E8%A7%86%E9%A2%91%E7%BD%91" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://dca4hqir96.execute-api.ap-southeast-1.amazonaws.com/tv2" rel="nofollow">聚缘阁视频网</a>
 </h3>
 <h3>
-<a id="user-content-新唐人在线播放" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E5%9C%A8%E7%BA%BF%E6%92%AD%E6%94%BE" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2" rel="nofollow">新唐人在线播放</a>
+<a id="user-content-新唐人在线播放" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E5%9C%A8%E7%BA%BF%E6%92%AD%E6%94%BE" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2" rel="nofollow">新唐人在线播放</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt="">
 </h3>
 <h3>
 <a id="user-content-youtube视频网" class="anchor" href="#youtube%E8%A7%86%E9%A2%91%E7%BD%91" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=17" rel="nofollow">youtube视频网</a>
