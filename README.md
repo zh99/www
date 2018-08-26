@@ -19,7 +19,7 @@
       <a href="http://rrd.me/dmggT" rel="nofollow">入口</a>
       <a href="http://t.cn/RkeSb1t" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/oqmdagzghn/cohwf.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/hogmyvieb/ev.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/uhmbqwzuxa/vfzkx.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/bdwsnkacy/dqbv.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/xtyxsogffg/bqgj.html" rel="nofollow">入口</a>
