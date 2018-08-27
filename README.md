@@ -21,9 +21,9 @@
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.amazonaws.com/rokduwvza/gouiv.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/yvvtoihsc/um.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ohnnemfwy/yj.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/riczkjpld/vx.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/hogmyvieb/ev.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/uhmbqwzuxa/vfzkx.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/hansctsnn/yaz.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/iydbhemzzk/jvfti.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
