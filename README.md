@@ -17,12 +17,12 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="http://u6.gg/excde" rel="nofollow">入口</a>
-      <a href="http://t.cn/RkeO4kp" rel="nofollow">入口</a>
+      <a href="http://t.cn/RkejZyh" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/fietfdlrb/abgng.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/xauhgfxzmb/bz.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/hogmyvieb/ev.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/hansctsnn/yaz.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/gavethpyp/mf.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/bdwsnkacy/dqbv.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/grxqqenqb/ubng.html" rel="nofollow">入口</a><br>
 <hr>
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RkeObz8" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RkeObGe" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RkeObMV" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RkeO41N" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RkeO4HR" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RkejZtD" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RkejZJ1" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RkejZKT" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RkejZhd" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RkejzgX" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
