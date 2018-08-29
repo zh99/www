@@ -16,7 +16,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://mrw.so/4xafpl" rel="nofollow">入口</a>
+      <a href="http://955.cc/?8kb" rel="nofollow">入口</a>
       <a href="http://t.cn/RFLrRIj" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/keqlelpkte/hdia.html" rel="nofollow">入口</a>
@@ -24,7 +24,7 @@
       <a href="https://s3.us-west-1.amazonaws.com/ipuxuzkew/bvblr.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/fwvcuhtvus/bafyy.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/uxyerxbup/ooh.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/keqohaahd/js.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/rvgjbexam/fva.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
