@@ -16,8 +16,8 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://uee.me/aw9UW" rel="nofollow">入口</a>
-      <a href="http://t.cn/RFqZGfl" rel="nofollow">入口</a>
+      <a href="http://so8.co/s90" rel="nofollow">入口</a>
+      <a href="http://t.cn/RFqLlmx" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/twlwlnvcw/kyak.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
@@ -39,11 +39,11 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="https://t.cn/RFqZGCb" rel="nofollow">大纪元新闻</a></p>
-<p><a href="https://t.cn/RFqZGHv" rel="nofollow">新唐人视频</a></p>
-<p><a href="https://t.cn/RFqZGr0" rel="nofollow">无界浏览</a></p>
-<p><a href="https://t.cn/RFqZGyg" rel="nofollow">三退自救</a></p>
-<p><a href="https://t.cn/RFqZGvm" rel="nofollow">网门视频</a></p>
+<p><a href="https://t.cn/RFqLlD8" rel="nofollow">大纪元新闻</a></p>
+<p><a href="https://t.cn/RFqLjAU" rel="nofollow">新唐人视频</a></p>
+<p><a href="https://t.cn/RFqLjIa" rel="nofollow">无界浏览</a></p>
+<p><a href="https://t.cn/RFqLll6" rel="nofollow">三退自救</a></p>
+<p><a href="https://t.cn/RFqLl6T" rel="nofollow">网门视频</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&from=852" rel="nofollow">大陆真相</a><br></p>
 <hr>
 <h3>
