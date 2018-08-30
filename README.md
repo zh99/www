@@ -16,7 +16,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://uee.me/awDcb" rel="nofollow">入口</a>
+      <a href="http://suo.im/4p6iot" rel="nofollow">入口</a>
       <a href="http://t.cn/RF5ARZR" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/ukvbdxynag/ucd.html" rel="nofollow">入口</a>
