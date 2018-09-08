@@ -16,13 +16,13 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://rrd.me/dnYVF" rel="nofollow">入口</a>
+      <a href="http://t.cn/RsapjRl" rel="nofollow">入口</a>
       <a href="http://t.cn/RsaYFNR" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/lynzolznd/al.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/uclbbgeodg/juuho.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/bormzfaum/nob.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/nzrvgycanp/rerve.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/dyvkgwmnj/kxm.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/hfhglrzyj/oyoyo.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/xhvgarkdh/wkce.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/khzodurfq/fc.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/trhceauwh/sew.html" rel="nofollow">入口</a><br>
 <hr>
@@ -58,13 +58,13 @@
 旧版和新版的使用环境不同。旧版适合老机子。<br>
 <hr>
 <h3>
-<p><strong><a href="https://github.com/gfw-breaker/banned-news" rel="nofollow">被墙新闻RSS自动同步</a></strong></p>
+<p><strong>被墙新闻RSS自动同步</strong></p>
 </h3>
-<p><a href="/gfw-breaker/banned-news/blob/master/indexes/nsc413.md">大纪元中国大陆新闻</a></p>
-<p><a href="/gfw-breaker/banned-news/blob/master/indexes/nsc412.md">大纪元新闻网美国频道</a></p>
-<p><a href="/gfw-breaker/banned-news/blob/master/indexes/nsc418.md">大纪元新闻网国际频道</a></p>
-<p><a href="/gfw-breaker/banned-news/blob/master/indexes/nsc423.md">大纪元专栏文集</a></p>
-<p><a href="/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc413.md">大纪元中国大陆新闻</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc412.md">大纪元新闻网美国频道</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc418.md">大纪元新闻网国际频道</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc423.md">大纪元专栏文集</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
 <hr>
 <h3>
 <p><strong>聚缘阁</strong></p>
