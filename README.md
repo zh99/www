@@ -19,7 +19,7 @@
       <a href="http://hylinkgz.com/195" rel="nofollow">入口</a>
       <a href="http://t.cn/RsWMEqD" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ktnqlfxtut/maql.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/goundnjxk/wmpt.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/rukizricoq/ua.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
