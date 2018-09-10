@@ -22,9 +22,9 @@
       <a href="https://s3.ap-northeast-2.amazonaws.com/bugabezywy/dft.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/njjggbapt/fft.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/dspteultc/sanx.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/xtcadratot/zhnuo.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/sflwzyeoxh/vydeh.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ikwjzrggxb/hlqr.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/xpylsuyyqi/rdybp.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
@@ -81,6 +81,9 @@
 </h3>
 <h3>
 <a id="user-content-动态网高速口二" class="anchor" href="#%E5%8A%A8%E6%80%81%E7%BD%91%E9%AB%98%E9%80%9F%E5%8F%A3%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://x.co/ddg" rel="nofollow">动态网高速口二</a>
+</h3>
+<h3>
+<a id="user-content-新唐人高速入口" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=5" rel="nofollow">新唐人高速入口</a>
 </h3>
 <h3>
 <a id="user-content-新唐人在线播放" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E5%9C%A8%E7%BA%BF%E6%92%AD%E6%94%BE" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2" rel="nofollow">新唐人在线播放</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt="">
