@@ -19,9 +19,9 @@
       <a href="http://lovetmall.top/ctmgm" rel="nofollow">入口</a>
       <a href="http://t.cn/Rs8oyFO" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/yejjfypxhd/rhh.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/jlfmfqvnvg/dgci.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/qxgbtkycj/ru.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/lnkcbjdos/hx.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/zckqymhgr/aq.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/njgjfeueom/veka.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
