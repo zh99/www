@@ -17,13 +17,13 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddf" rel="nofollow">入口</a>
-      <a href="http://w7w.com.cn/jvbvj" rel="nofollow">入口</a>
+      <a href="http://t.cn/Ev7EmZr" rel="nofollow">入口</a>
       <a href="http://w7w.com.cn/wh8zg" rel="nofollow">入口</a><br>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/xsttrlaah/andir.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/xfnkkedvyg/lsl.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/xmlpqqrof/yov.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/sdbtijpbu/jfj.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/begabqfre/amsj.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/zpffyayqy/wced.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
