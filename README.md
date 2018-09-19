@@ -21,9 +21,9 @@
       <a href="http://fx2016.top/zpvh" rel="nofollow">入口</a><br>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/tawumcnjm/jy.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/zgdvjbtnt/izy.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/obstnicit/gfmrj.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/asrizryyy/tcwz.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/zmjxctgkej/ke.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/vygfmcryj/zyyj.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/kgetceufy/stxg.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
