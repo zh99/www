@@ -21,8 +21,8 @@
       <a href="http://up8.ren/?1b" rel="nofollow">入口</a><br>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/llehkqygy/uamga.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/pdjlamfnz/zb.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ngpmgissey/qqc.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/tyltufgdzh/ogt.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/pxciceqtt/eme.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/yreuypueb/qlbkp.html" rel="nofollow">入口</a><br>
 <hr>
