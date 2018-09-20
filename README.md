@@ -17,14 +17,14 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddf" rel="nofollow">入口</a>
-      <a href="http://mxm3.cn/ch6" rel="nofollow">入口</a>
-      <a href="http://t.cn/EvmznzX" rel="nofollow">入口</a><br>
+      <a href="http://kkb.red/2qf5g" rel="nofollow">入口</a>
+      <a href="http://mxm3.cn/ch6" rel="nofollow">入口</a><br>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ivwqejtkk/co.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/wfonyjbaa/mcnz.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ihzxmcdkp/ne.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/vrvkjxotf/hntug.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/gosjpqunal/gyjke.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/rqvtlogngt/bpwt.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
