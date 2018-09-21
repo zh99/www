@@ -18,7 +18,7 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddf" rel="nofollow">入口</a>
       <a href="http://d.yunshopper.cn/?xb6k" rel="nofollow">入口</a>
-      <a href="http://51caoni.top/?9hj" rel="nofollow">入口</a><br>
+      <a href="http://w-8.biz/gdg9b" rel="nofollow">入口</a><br>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ivsqsizthb/htg.html" rel="nofollow">入口</a><br>
