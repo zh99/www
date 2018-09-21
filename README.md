@@ -22,7 +22,7 @@
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/lyolqjrcj/wnv.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/hnovjlndss/wk.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/xfpninaqeu/fuag.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/rvnabvhbq/btbsh.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/vqtubvcrc/jui.html" rel="nofollow">入口</a><br>
 <hr>
