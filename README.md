@@ -10,21 +10,21 @@
 <h3>
 <p><strong>简易网址</strong></p>
 </h3>
-<strong><a href="https://git.io/ccc">https://git.io/ccc</a></strong><br>
-<strong><a href="https://x.co/ddf">https://x.co/ddf</a></strong><br>
-<strong><a href="https://x.co/ddg">https://x.co/ddg</a></strong><br>
+<strong><a href="https://git.io/ccc">git.io/ccc</a></strong><br>
+<strong><a href="https://x.co/ddf">x.co/ddf</a></strong><br>
+<strong><a href="https://x.co/ddg">x.co/ddg</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
-      <a href="http://up8.ren/?2u5" rel="nofollow">入口</a>
-      <a href="http://up8.ren/?2u5" rel="nofollow">入口</a>
-      <a href="http://www.dwz.am/l8s4css.html" rel="nofollow">入口</a><br>
+      <a href="http://2ee.com.cn/45w2m" rel="nofollow">入口</a>
+      <a href="http://7ms.cc/?fq" rel="nofollow">入口</a>
+      <a href="http://up8.ren/?2u5" rel="nofollow">入口</a><br>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/sjmmcjyxup/ysul.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/ivoublttus/wc.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/uxyklgwgbz/xbge.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/fifgilaoup/rbu.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/mhhquhgbrw/knl.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/ufdcnrlih/waef.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
