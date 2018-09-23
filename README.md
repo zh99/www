@@ -17,12 +17,12 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://2ee.com.cn/mhuks" rel="nofollow">入口</a>
-      <a href="http://2ee.com.cn/mhuks" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EPyrJMC" rel="nofollow">入口</a>
+      <a href="http://www.dwz.am/l8s45ce.html" rel="nofollow">入口</a>
+      <a href="http://yhqapp.com/?uj" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EPykGJd" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/kkbagpnpx/tgm.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/crkrfbkrx/xuwp.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ihrezqztsd/dsftt.html" rel="nofollow">入口</a><br>
 
@@ -44,7 +44,7 @@
 </h3>
 <p><a href="https://git.io/fgp" rel="nofollow">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <p><a href="https://git.io/fgma" rel="nofollow">自由门（手机版）</a></p>
-<p><a href="https://git.io/vEJlj rel="nofollow">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://git.io/vEJlj" rel="nofollow">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <p><a href="https://s3.amazonaws.com/693/um.apk" rel="nofollow">无界浏览（手机版）</a></p>
 <p><a href="https://github.com/gfw-breaker/nogfw/blob/master/binary/iPPOTV.zip?raw=true">爱博电视（电脑版）</a></p>
 <p><a href="https://github.com/gfw-breaker/nogfw/blob/master/binary/iNTD_TV.apk?raw=true" rel="nofollow">新唐人电视（手机版）</a></p>
