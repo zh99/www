@@ -18,8 +18,8 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://w7w.com.cn/6dsz5" rel="nofollow">入口</a>
-      <a href="http://durl.ooo/nm" rel="nofollow">入口</a><br>
-      <a href="http://w7w.com.cn/6dsz5" rel="nofollow">入口</a>
+      <a href="http://w7w.com.cn/6dsz5" rel="nofollow">入口</a><br>
+      <a href="http://durl.ooo/nm" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/fbmabogps/wc.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/wvtarjxlgu/iyi.html" rel="nofollow">入口</a>
