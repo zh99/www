@@ -19,7 +19,7 @@
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://lovetmall.top/5p24f" rel="nofollow">入口</a>
       <a href="http://t.cn/EPfXWTN" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EPfXWTN" rel="nofollow">入口</a>
+      <a href="http://lovetmall.top/5p24f" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/hpzwvjkmww/ucrrt.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/ppojpqghu/bgi.html" rel="nofollow">入口</a>
