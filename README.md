@@ -19,10 +19,10 @@
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://48i.top/8mgqv" rel="nofollow">入口</a>
       <a href="http://kkb.red/gzr9y" rel="nofollow">入口</a><br>
-      <a href="http://yhqapp.com/?i9" rel="nofollow">入口</a>
+      <a href="http://48i.top/8mgqv" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/solagdyfn/xsmr.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/quzaopmrn/zlz.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/mbhnofahdf/cad.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ztiqxnqlf/yp.html" rel="nofollow">入口</a><br>
 <hr>
