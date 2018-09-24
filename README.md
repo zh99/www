@@ -18,8 +18,8 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://lovetmall.top/mecce" rel="nofollow">入口</a>
-      <a href="http://t.cn/EPV73B3" rel="nofollow">入口</a><br>
-      <a href="http://48i.top/wp5e2" rel="nofollow">入口</a>
+      <a href="http://2ee.com.cn/jmzgx" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EPV78eX" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/zybwtbwmvi/lqj.html" rel="nofollow">入口</a>
