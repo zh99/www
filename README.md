@@ -22,7 +22,7 @@
       <a href="http://226.wiki/?mr" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/wtdorstur/uqnh.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/sdbguanzqc/nrfo.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/kjtzfbmqmz/yb.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/duxwqnimrt/ltzd.html" rel="nofollow">入口</a><br>
 <hr>
