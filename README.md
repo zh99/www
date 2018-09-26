@@ -24,7 +24,7 @@
       <a href="https://s3.ap-northeast-2.amazonaws.com/hiehlwuvys/yzgw.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/mwilmjmpp/awcrb.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/htjjxefch/zlc.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/iqalelivc/yhwgz.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/acgunvekkn/ffxdh.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
