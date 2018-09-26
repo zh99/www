@@ -17,9 +17,9 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://t.cn/EPSViGr" rel="nofollow">入口</a>
-      <a href="http://t.cn/EPSVoZf" rel="nofollow">入口</a><br>
-      <a href="http://2ee.com.cn/g4tz7" rel="nofollow">入口</a>
+      <a href="http://fx2016.top/nqmq" rel="nofollow">入口</a>
+      <a href="http://t.cn/EPSVxku" rel="nofollow">入口</a><br>
+      <a href="http://23s.xyz/ze76a" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/lpbncxjpl/ut.html" rel="nofollow">入口</a><br>
       <a href="https://s3.amazonaws.com/uzyqllaxw/tycrv.html" rel="nofollow">入口</a>
