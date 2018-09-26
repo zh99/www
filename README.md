@@ -22,9 +22,9 @@
       <a href="http://nx9v.top/qMnu2a" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/htjjxefch/zlc.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/acgunvekkn/ffxdh.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/iqalelivc/yhwgz.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/ujmjqzhary/sid.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/gdcfhpyjdt/icwy.html" rel="nofollow">入口</a><br>
 
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
