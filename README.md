@@ -19,9 +19,9 @@
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://226.wiki/?h2" rel="nofollow">入口</a>
       <a href="https://moo.pet/6Dn" rel="nofollow">入口</a><br>
-      <a href="https://moo.pet/6Dn" rel="nofollow">入口</a>
+      <a href="http://226.wiki/?h2" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/eskfvunva/mnpge.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/inhouuqhmp/lek.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/fjhgehbvmx/oqhzk.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/izcduxlra/ahzo.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
