@@ -17,14 +17,14 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://226.wiki/?yh" rel="nofollow">入口</a>
-      <a href="http://www.dwz.am/l8sd3er.html" rel="nofollow">入口</a><br>
-      <a href="http://td58.cn/?sdbl6h" rel="nofollow">入口</a>
+      <a href="http://up8.ren/?5" rel="nofollow">入口</a>
+      <a href="http://up8.ren/?5" rel="nofollow">入口</a><br>
+      <a href="http://48i.top/byh8t" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/slqkmxgfn/nxyx.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/xfwiwhgit/ag.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/cwfkeghrpz/eh.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/pkrwmjemyd/omf.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/ckjohsmilq/hpkes.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
