@@ -17,12 +17,12 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://66m.me/?qv9" rel="nofollow">入口</a>
-      <a href="http://66m.me/?qv9" rel="nofollow">入口</a><br>
-      <a href="http://86.bi/v99k" rel="nofollow">入口</a>
+      <a href="http://nx9v.top/a2eQ3y" rel="nofollow">入口</a>
+      <a href="http://td58.cn/?w9akj4" rel="nofollow">入口</a><br>
+      <a href="http://23s.xyz/4dd63" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ansjhrnnxy/qt.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/uftiaqgmws/mt.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/pnghahrope/ufssl.html" rel="nofollow">入口</a><br>
 <hr>
