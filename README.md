@@ -18,10 +18,10 @@
 <p>请尝试不同入口，进入动态网</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://nx9v.top/7bMbae" rel="nofollow">入口</a>
-      <a href="http://suo.cx/?hfi" rel="nofollow">入口</a><br>
-      <a href="http://suo.cx/?hfi" rel="nofollow">入口</a>
+      <a href="http://dwz.8qwe.cn/ew" rel="nofollow">入口</a><br>
+      <a href="http://nx9v.top/JFrQVv" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/rovgvlvguq/ccuss.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/dauwhtcop/uia.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/avbwryafg/ruzp.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/wicxvvnvit/rbofe.html" rel="nofollow">入口</a><br>
