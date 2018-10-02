@@ -19,10 +19,10 @@
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://durl.ooo/sc" rel="nofollow">入口</a>
       <a href="http://nx9v.top/iIRzMf" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EhbzWDp" rel="nofollow">入口</a>
+      <a href="http://nx9v.top/iIRzMf" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/svfaesala/gcgzo.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/kgroclvedb/py.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/ahouxrggh/ep.html" rel="nofollow">入口</a><br>
 <hr>
