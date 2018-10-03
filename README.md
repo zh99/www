@@ -21,10 +21,10 @@
       <a href="http://t.cn/EhqQHno" rel="nofollow">入口</a><br>
       <a href="http://vhou.la/cjdx" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/gzifenbgh/utytd.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/bpyhuldyw/fo.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/hjwsmgqys/dd.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ldlwncbjpp/lcxp.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/hukvbxsmlw/lslo.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
