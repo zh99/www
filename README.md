@@ -5,26 +5,26 @@
 <strong>可向 fr45tr@gmail.com 索取推广网址。如果页面出错，刷新一下。</strong><br>
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
 <strong>如果国内浏览器打不开，用IE、Firefox、Chrome打开</strong><br>
-<p><strong>如果网页打开不顺利，下载本页的翻墙软件</strong></p>
+<p><strong>鉴于GFW封锁不断升级, 强烈推荐使用一键翻墙软件</strong></p>
 <hr>
 <h3>
-<p><strong>简易网址</strong></p>
+<p><strong>简易翻墙网址</strong></p>
 </h3>
 <strong><a href="https://git.io/ccc">git.io/ccc</a></strong><br>
 <strong><a href="https://x.co/ddf">x.co/ddf</a></strong><br>
 <strong><a href="https://x.co/ddg">x.co/ddg</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
-<p>请尝试不同入口，进入动态网</p>
+<p>请尝试不同入口，直接翻墙</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://t.cn/EhaRm3j" rel="nofollow">入口</a>
-      <a href="http://t.cn/EhaRmVG" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EhaRmVG" rel="nofollow">入口</a>
+      <a href="http://t.cn/EhaRn8e" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EhaREed" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/agirapegmz/rjt.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/flwimyzkup/vtyn.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/agirapegmz/rjt.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/gyfdkmpnr/ybmr.html" rel="nofollow">入口</a>
-      <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/xkjpwksiv/pfl.html" rel="nofollow">入口</a><br>
+      <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
@@ -40,7 +40,7 @@
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
 <h3>
-<p><strong>下载翻墙软件</strong></p>
+<p><strong>下载一键翻墙软件</strong></p>
 </h3>
 <p><a href="https://git.io/fgp" rel="nofollow">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <p><a href="https://git.io/fgma" rel="nofollow">自由门（手机版）</a></p>
