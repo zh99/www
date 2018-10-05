@@ -19,12 +19,12 @@
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://t.cn/EhCAr0m" rel="nofollow">入口</a>
       <a href="http://t.cn/EhCAr0m" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EhCAr0m" rel="nofollow">入口</a>
+      <a href="http://t.cn/EhCArJ9" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/lpoumjkspz/vocqj.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/vofxugvkq/bmgwf.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/bskamsurs/veaqn.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/rwwaliwuf/oh.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/piumgptgll/wzgl.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
