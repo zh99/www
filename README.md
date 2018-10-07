@@ -17,14 +17,14 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://t.cn/Eh8E9WX" rel="nofollow">入口</a>
-      <a href="http://t.cn/Eh8EK9j" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/Eh8E9WX" rel="nofollow">入口</a>
+      <a href="http://t.cn/Eh8eyZI" rel="nofollow">入口</a>
+      <a href="http://t.cn/Eh8eyZI" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/Eh8eUWz" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/tydqcxrsdx/ftcfy.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/cpeateykbl/rr.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/tydqcxrsdx/ftcfy.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/detyqouks/nw.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/sxdkoajvb/po.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/detyqouks/nw.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
@@ -61,7 +61,7 @@
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
 </h3>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc413.md">大纪元中国大陆新闻</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元中国大陆新闻</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc412.md">大纪元新闻网美国频道</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc418.md">大纪元新闻网国际频道</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc423.md">大纪元专栏文集</a></p>
