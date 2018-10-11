@@ -6,7 +6,7 @@
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
 <strong>如果国内浏览器打不开，用IE、Firefox、Chrome打开</strong><br>
-<p><strong>鉴于GFW封锁不断升级, 强烈推荐使用一键翻墙软件</strong></p>
+<p><strong>鉴于GFW封锁不断升级，强烈推荐使用一键翻墙软件</strong></p>
 <hr>
 <h3><p><strong>简易翻墙网址</strong></p></h3>
 <img src="https://github.com/szzd1/1/blob/master/t/ddf.jpg"><br>
@@ -17,14 +17,14 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7qrnbR" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7qrEWz" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E7qrnbR" rel="nofollow">入口</a>
+      <a href="http://t.cn/E7qrEgo" rel="nofollow">入口</a>
+      <a href="http://t.cn/E7qrnNE" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E7qrEWz" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/cdcxayzfib/zpssu.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/vvhiskqcok/yudnb.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/aicbucyyku/oixn.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/kvppjdvrl/qhd.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/pxettrliyr/cv.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
