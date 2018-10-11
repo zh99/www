@@ -8,22 +8,22 @@
 <p><strong>鉴于GFW封锁不断升级, 强烈推荐使用一键翻墙软件</strong></p>
 <hr>
 <h3><p><strong>简易翻墙网址</strong></p></h3>
+<strong><a href="https://x.co/ddf">x.co/ddf</a></strong><br>
+<strong><a href="https://x.co/ddg">x.co/ddg</a></strong><br>
+<strong><a href="https://git.io/ccc">git.io/ccc</a></strong><br>
 <img src="https://github.com/szzd1/1/blob/master/t/ddf.jpg"><br>
-<strong><a href="https://x.co/ddf">https://x.co/ddf</a></strong><br>
-<strong><a href="https://x.co/ddg">https://x.co/ddg</a></strong><br>
-<strong><a href="https://git.io/ccc">https://git.io/ccc</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://t.cn/E7qRM1l" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7qRxZg" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E7qRM0M" rel="nofollow">入口</a>
+      <a href="http://t.cn/E7qRM1l" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E7qRI95" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/aicbucyyku/oixn.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/pxettrliyr/cv.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ubbkkktsuy/btrl.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/kvppjdvrl/qhd.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/kepqywxzcm/cv.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
