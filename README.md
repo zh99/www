@@ -9,34 +9,34 @@
 <hr>
 <h3><p><strong>简易翻墙网址</strong></p></h3>
 <img src="https://github.com/szzd1/1/blob/master/t/ddf.jpg"><br>
-<strong><a href="https://x.co/ddf">x.co/ddf</a></strong><br>
-<strong><a href="https://x.co/ddg">x.co/ddg</a></strong><br>
-<strong><a href="https://git.io/ccc">git.io/ccc</a></strong><br>
+<strong><a href="https://x.co/ddf">https://x.co/ddf</a></strong><br>
+<strong><a href="https://x.co/ddg">https://x.co/ddg</a></strong><br>
+<strong><a href="https://git.io/ccc">https://git.io/ccc</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://x.co/ddg" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7qOCA1" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7qOCA1" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E7qONzK" rel="nofollow">入口</a>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/pxettrliyr/cv.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ubbkkktsuy/btrl.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/uhecekoqlz/zkz.html" rel="nofollow">入口</a><br>
+      <a href="https://x.co/ddg" rel="nofollow">入口1</a>
+      <a href="http://t.cn/E7qOpAL" rel="nofollow">入口2</a>
+      <a href="http://t.cn/E7qOC8o" rel="nofollow">入口3</a><br>
+      <a href="http://t.cn/E7qONzK" rel="nofollow">入口4</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口5</a>
+      <a href="" rel="nofollow">入口6</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/kvppjdvrl/qhd.html" rel="nofollow">入口7</a>
+      <a href="https://s3.us-west-1.amazonaws.com/kepqywxzcm/cv.html" rel="nofollow">入口8</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/uhecekoqlz/zkz.html" rel="nofollow">入口9</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <br>请尝试不同入口，进入网门<br>
 <br>
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口1</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口2</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?from=852" rel="nofollow">入口3</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口4</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口5</a>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口6</a><br>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852" rel="nofollow">入口7</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口8</a>
+      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口9</a><br>
 <hr>
 <h3>
 <p><strong>下载一键翻墙软件</strong></p>
