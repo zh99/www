@@ -18,8 +18,8 @@
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://x.co/ddg" rel="nofollow">入口</a>
       <a href="http://t.cn/E7aGkCa" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7aGDge" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E7aGkGZ" rel="nofollow">入口</a>
+      <a href="http://t.cn/E7aGF9L" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E7aGF2c" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/efiiqnmkr/txyct.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/npsamyqcfe/osuy.html" rel="nofollow">入口</a>
