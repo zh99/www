@@ -18,10 +18,10 @@
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://d3q8wuahanqpam.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/E7NjgK4" rel="nofollow">入口</a>
-      <a href="http://t.cn/E7NjgK4" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E7NjgPs" rel="nofollow">入口</a><br>
       <a href="http://t.cn/E7Njg5u" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/dfcpyptfv/tivjq.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/lskvvkclof/bdjt.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/ugwlyikfil/ddjt.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/shbvmknbyy/jqm.html" rel="nofollow">入口</a><br>
