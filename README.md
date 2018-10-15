@@ -16,14 +16,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d2w7ost9eke6c1.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/E71KoOh" rel="nofollow">入口</a>
-      <a href="http://t.cn/E71KSvf" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E71KSIg" rel="nofollow">入口</a>
+      <a href="https://d2gat0wbpykdrq.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/E71KanV" rel="nofollow">入口</a>
+      <a href="http://t.cn/E71KSBw" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E71KSBw" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/mtmtbpmvw/joh.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/xotwgydhpp/put.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/cqomsaaplu/kwo.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/zkmivjgpyi/qc.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/jynnhyhzfq/nab.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/wlahfddpyf/raouj.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
