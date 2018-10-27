@@ -17,7 +17,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d2e4mk3vvyqtu3.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://dl4ht148et75o.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EZHAYDR" rel="nofollow">入口</a>
       <a href="http://t.cn/EZHAYDR" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EZHAYDR" rel="nofollow">入口</a>
