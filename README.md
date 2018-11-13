@@ -17,10 +17,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d3aryss75eymuj.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EA1c7Y7" rel="nofollow">入口</a>
-      <a href="http://t.cn/EA1c7Vn" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EA1c7Y7" rel="nofollow">入口</a>
+      <a href="https://d3vmh36w47dl9l.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EA1cZzG" rel="nofollow">入口</a>
+      <a href="http://t.cn/EA1c7s1" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EA1c7vr" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/tybpwfnpu/sptbl.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/nrflbvifm/pblmr.html" rel="nofollow">入口</a>
@@ -43,27 +43,19 @@
 <h3>
 <p><strong>下载一键翻墙软件</strong></p>
 </h3>
-<p><a href="https://git.io/fgp" rel="nofollow">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/fg.jpg"><br>
-<p><a href="https://git.io/fgma" rel="nofollow">自由门（手机版）</a></p>
-<p><a href="https://git.io/vEJlj" rel="nofollow">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/u1.jpg"><br>
 <p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/ultrasurf.apk?raw=true" rel="nofollow">无界浏览安卓4.1+（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/u2.jpg"><br>
-<p><a href=""https://s3.amazonaws.com/693/um.apk" rel="nofollow">无界浏览安卓2.0+（手机版）</a></p>
-<p><a href="https://github.com/gfw-breaker/nogfw/blob/master/binary/iPPOTV.zip?raw=true">爱博电视（电脑版）</a></p>
-<p><a href="https://github.com/gfw-breaker/nogfw/blob/master/binary/iNTD_TV.apk?raw=true" rel="nofollow">新唐人电视（手机版）</a></p>
-<p><a href="https://git.io/ogatew2" rel="nofollow">网门（电脑版）</a></p>
 <p><a href="https://git.io/ogatea2" rel="nofollow">网门（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/wm.jpg"><br>
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master//extras/SzzdOgate.apk?fldfh" rel="nofollow">神州正道安卓4.0+（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/sz.jpg"><br>
+<p><a href="https://github.com/gfw-breaker/nogfw/blob/master/binary/iNTD_TV.apk?raw=true" rel="nofollow">新唐人电视（手机版）</a></p>
+<p><a href="https://git.io/fgp" rel="nofollow">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://git.io/vEJlj" rel="nofollow">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://github.com/gfw-breaker/nogfw/blob/master/binary/iPPOTV.zip?raw=true">爱博电视（电脑版）</a></p>
+<p><a href="https://git.io/ogatew2" rel="nofollow">网门（电脑版）</a></p>
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
-<p><a href="https://git.io/vA5GO" rel="nofollow">神州正道安卓2.3+（手机版）</a></p>
 <p><a href="https://git.io/fxNjC" rel="nofollow">神州正道（网页版）</a></p>
-<p><a href="https://github.com/bannedbook/fanqiang/wiki">更多翻墙软件1</a></p>
-<p><a href="https://github.com/Alvin9999/new-pac/wiki">更多翻墙软件2</a></p>
-旧版和新版的使用环境不同。旧版适合老机子。<br>
 <hr>
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
