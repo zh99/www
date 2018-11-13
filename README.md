@@ -17,10 +17,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d39mtnvx3byqag.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAE8tDV" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAE8f1A" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAE8f1A" rel="nofollow">入口</a>
+      <a href="https://duxglmh3t9r4l.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAE8V3o" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAE8fC4" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAE8f45" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vnbhnwqvrm/vbo.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/puxgvhhzq/qsz.html" rel="nofollow">入口</a>
@@ -111,6 +111,9 @@
 <p>
 <a id="user-content-亚马逊镜像入口" class="anchor" href="#%E4%BA%9A%E9%A9%AC%E9%80%8A%E9%95%9C%E5%83%8F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>亚马逊镜像入口</p>
 <p>请逐一点击</p>
+<h3>
+<a id="user-content-入口一-入口二" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%80-%E5%85%A5%E5%8F%A3%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://3zourvv4wa.execute-api.ap-northeast-2.amazonaws.com/o987yhh" rel="nofollow">入口一</a></strong> <strong><a href="https://fdi8oeor37.execute-api.ap-northeast-2.amazonaws.com/45758oy" rel="nofollow">入口二</a></strong>
+</h3>
 <h3>
 <a id="user-content-入口三--入口四" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%89--%E5%85%A5%E5%8F%A3%E5%9B%9B" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html" rel="nofollow">入口三</a></strong>  <strong><a href="https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html" rel="nofollow">入口四</a></strong>
 </h3>
