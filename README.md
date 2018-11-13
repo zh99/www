@@ -1,7 +1,7 @@
 <table>   
 <tr>
 <td>
-<h3><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br></h3>
+<h3><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br>.</h3>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
@@ -17,9 +17,9 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d33jly40pharyl.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EA1TtTT" rel="nofollow">入口</a>
-      <a href="http://t.cn/EA1Ttkf" rel="nofollow">入口</a><br>
+      <a href="https://d3d98hywiahh8k.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EA1Ttkf" rel="nofollow">入口</a>
+      <a href="http://t.cn/EA1TtTT" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EA1TtSX" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/rikzyddpm/ycbg.html" rel="nofollow">入口</a><br>
