@@ -10,7 +10,7 @@
 <p><strong>鉴于GFW封锁不断升级，强烈推荐使用<a href="https://github.com/szzd1/2/blob/master/README.md?u#%E4%B8%8B%E8%BD%BD%E4%B8%80%E9%94%AE%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6
 ">一键翻墙软件</a></strong></p>
 <hr>
-<h3><p><strong>简易翻墙网址</strong></p></h3>
+<h4><p><strong>简易翻墙网址</strong></p></h4>
 <strong><a href="https://x.co/ddf">&nbsp;&#160;&nbsp;&#160;x.co/ddf</a></strong><br>
 <strong><a href="https://x.co/ddg">&nbsp;&#160;&nbsp;&#160;x.co/ddg</a></strong><br>
 <strong><a href="https://git.io/ccc">&nbsp;&#160;&nbsp;&#160;git.io/ccc</a></strong><br>
@@ -18,10 +18,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d3k6933aa668o7.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EA1ulps" rel="nofollow">入口</a>
-      <a href="http://t.cn/EA1ulcm" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EA1ulcm" rel="nofollow">入口</a>
+      <a href="https://d3d28690ecbrmj.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EA1gHcB" rel="nofollow">入口</a>
+      <a href="http://t.cn/EA1gHZZ" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EA1gHZZ" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/cmsdthnjuk/owb.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/rikzyddpm/ycbg.html" rel="nofollow">入口</a>
