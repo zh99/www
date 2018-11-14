@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d3gcymvtrfw11z.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAdfHPD" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAdfTAL" rel="nofollow">入口</a><br>
+      <a href="https://d2lm42ynn10qyb.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAdfYmj" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAdfHjj" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAdfTQu" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/bbpxqcqxwg/nxzkf.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/hgdstupdvk/ed.html" rel="nofollow">入口</a>
@@ -60,6 +60,7 @@
 </div>
 <div id="div3">
 <a name="mao" target="_blank"></a>
+<a name="order" id="order" class="anchor"></a>
 <div name='abc'></div>
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
