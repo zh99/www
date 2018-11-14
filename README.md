@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d30buqnxe1g6e0.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAdb5I0" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAdbqJ4" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAdbqsO" rel="nofollow">入口</a>
+      <a href="https://d2kumyfrc3w0hy.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAdbGth" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAdbGth" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAdbGCE" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/bbpxqcqxwg/nxzkf.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/hgdstupdvk/ed.html" rel="nofollow">入口</a>
@@ -83,7 +83,7 @@
 <hr>
 </div>
 <h3>
-<p><strong>a</strong></p>
+<p><strong>聚缘阁</strong></p>
 </h3>
 <p>
 <a id="user-content-轻松翻墙从聚缘阁开始" class="anchor" href="#%E8%BD%BB%E6%9D%BE%E7%BF%BB%E5%A2%99%E4%BB%8E%E8%81%9A%E7%BC%98%E9%98%81%E5%BC%80%E5%A7%8B" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>轻松翻墙、从聚缘阁开始</p>
