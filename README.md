@@ -15,7 +15,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d513w82py0sf1.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d1d3xuoke98msd.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAD59jj" rel="nofollow">入口</a>
       <a href="http://t.cn/EAD5Ku0" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAD59Ml" rel="nofollow">入口</a>
@@ -148,7 +148,9 @@
 </p>
 <hr>
 <a name="5" target="_blank"></a>
-<p><p><strong></strong></p></p>
+<h1>
+<p><strong>数点梅花天地春</strong></p>
+</h1>
 <img src="https://github.com/szzd1/1/blob/master/t/01.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/03.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/04.jpg"><br>
