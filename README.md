@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://dtsfu351ng5c5.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAD59Ml" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAD59Zk" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAD59Ml" rel="nofollow">入口</a>
+      <a href="https://dsrpuo1zljs68.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAD59Zk" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAD5oYC" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAD5Ku0" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/bcbrwworj/ck.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/bjdubrdmgm/wrp.html" rel="nofollow">入口</a>
@@ -58,7 +58,7 @@
 <hr>
 <a name="3" target="_blank"></a>
 <h1>
-<p><strong>被墙新闻RSS自动同步</strong></p>
+<p><strong>被墙新闻RSS同步</strong></p>
 </h1>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/djy.jpg"><br>
