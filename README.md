@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d1lz5csd6k45v0.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAdadnr" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAdargb" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAdaBWb" rel="nofollow">入口</a>
+      <a href="https://d3tpdgn14twy04.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAdar57" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAdadyg" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAdaBVw" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/fzjjsfnfy/njtnb.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/bbpxqcqxwg/nxzkf.html" rel="nofollow">入口</a>
@@ -61,7 +61,7 @@
 <div id="div3">
 <a name="mao" target="_blank"></a>
 <a name="order" id="order" class="anchor"></a>
-<div style="height:1000px">a3<a name="a3" class="anchor">&nbsp;</a></div>
+<div style="height:1000px"><a name="a3" class="anchor">&nbsp;</a></div>
 <div name='abc'></div>
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
