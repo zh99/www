@@ -1,7 +1,8 @@
 <table>   
 <tr>
 <td>
-<h3><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG">1</h3><br>
+<div id="div1"></div>
+<h3><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"></h3><br>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
@@ -17,7 +18,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d1xam3ph3jetpm.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d2gx39mor5mrod.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EArqMxA" rel="nofollow">入口</a>
       <a href="http://t.cn/EArqxfL" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EArqxw3" rel="nofollow">入口</a>
@@ -40,6 +41,7 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
+<div id="div2"></div>
 <h3>
 <p><strong>下载一键翻墙软件</strong></p>
 </h3>
@@ -57,6 +59,7 @@
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
 <p><a href="https://git.io/fxNjC" rel="nofollow">神州正道（网页版）</a></p>
 <hr>
+<div id="div3"></div>
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
 </h3>
