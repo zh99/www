@@ -15,7 +15,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://df9pzaeeze78e.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://dtqen42bv9pcd.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAdaBVw" rel="nofollow">入口</a>
       <a href="http://t.cn/EAdadnr" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAdadaV" rel="nofollow">入口</a>
@@ -61,6 +61,7 @@
 <div id="div3">
 <a name="mao" target="_blank"></a>
 <a name="order" id="order" class="anchor"></a>
+<div style="height:1000px">a3<a name="a3" class="anchor">&nbsp;</a></div>
 <div name='abc'></div>
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
