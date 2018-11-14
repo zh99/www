@@ -8,17 +8,17 @@
 ">一键翻墙软件</a></strong></p>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/ddf.jpg">
-<h4><strong>简易翻墙网址</strong></h4>
+<p>&nbsp;&#160;简易翻墙网址</p>
 <strong><a href="https://x.co/ddf">&nbsp;&#160;&nbsp;&#160;x.co/ddf</a></strong><br>
 <strong><a href="https://x.co/ddg">&nbsp;&#160;&nbsp;&#160;x.co/ddg</a></strong><br>
 <strong><a href="https://git.io/ccc">&nbsp;&#160;&nbsp;&#160;git.io/ccc</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d2ec5l79yj7ce3.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAD26tu" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAD2XoZ" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAD2XRM" rel="nofollow">入口</a>
+      <a href="https://d1ixdnivdrxqdb.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAD2X47" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAD26PB" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAD2X47" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/bjdubrdmgm/wrp.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/vmwgdztnx/jbltv.html" rel="nofollow">入口</a>
