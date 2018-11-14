@@ -15,7 +15,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d1aj9hf8hsvfuu.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://due1iz7lozqlw.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAdbGCE" rel="nofollow">入口</a>
       <a href="http://t.cn/EAdbqhD" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAdbGCE" rel="nofollow">入口</a>
@@ -62,6 +62,7 @@
 <a name="mao" target="_blank"></a>
 <div name='abc'></div>
 <h3>
+a
 <p><strong>被墙新闻RSS自动同步</strong></p>
 </h3>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
