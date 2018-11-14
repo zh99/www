@@ -7,7 +7,7 @@
 <p><strong>鉴于GFW封锁不断升级，强烈推荐使用<a href="https://github.com/szzd1/2/blob/master/README.md?u#%E4%B8%8B%E8%BD%BD%E4%B8%80%E9%94%AE%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6
 ">一键翻墙软件</a></strong></p>
 <hr>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/ddf.jpg"><br>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/ddf.jpg">
 <h4><p><strong>简易翻墙网址</strong></p></h4>
 <strong><a href="https://x.co/ddf">&nbsp;&#160;&nbsp;&#160;x.co/ddf</a></strong><br>
 <strong><a href="https://x.co/ddg">&nbsp;&#160;&nbsp;&#160;x.co/ddg</a></strong><br>
@@ -15,7 +15,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://dl9vsa1433mzi.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d3enc8swc940g5.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAD2698" rel="nofollow">入口</a>
       <a href="http://t.cn/EAD2io2" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAD2X47" rel="nofollow">入口</a>
