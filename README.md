@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d27dpx0t5zg6df.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EADC5jd" rel="nofollow">入口</a>
-      <a href="http://t.cn/EADC5jd" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EADC5iZ" rel="nofollow">入口</a>
+      <a href="https://d9m5b5hfh87s6.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EADTJzt" rel="nofollow">入口</a>
+      <a href="http://t.cn/EADTMiS" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EADTxq8" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/jkgrospzie/riboe.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/bcbrwworj/ck.html" rel="nofollow">入口</a>
@@ -26,8 +26,7 @@
       <a href="https://s3.ca-central-1.amazonaws.com/vmwgdztnx/jbltv.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
-请尝试不同入口，进入网门<br>
-<br>
+<p>请尝试不同入口，进入网门</p>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?from=852" rel="nofollow">入口</a><br>
