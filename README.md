@@ -1,4 +1,4 @@
-<div id="div1"></div>
+<div id="div1">
 <h3><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"></h3><br>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
@@ -15,7 +15,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d1vg0fh59axj5f.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d2hkbug768qxh4.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAroe0J" rel="nofollow">入口</a>
       <a href="http://t.cn/EArogQs" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EArogQs" rel="nofollow">入口</a>
@@ -38,7 +38,8 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<div id="div2"></div>
+</div>
+<div id="div2">
 <h3>
 <p><strong>下载一键翻墙软件</strong></p>
 </h3>
@@ -56,7 +57,8 @@
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
 <p><a href="https://git.io/fxNjC" rel="nofollow">神州正道（网页版）</a></p>
 <hr>
-<div id="div3"></div>
+</div>
+<div id="div3">
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
 </h3>
@@ -77,6 +79,7 @@
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news202.md">新唐人国际新闻</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news208.md">新唐人财经新闻</a></p>
 <hr>
+</div>
 <h3>
 <p><strong>聚缘阁</strong></p>
 </h3>
