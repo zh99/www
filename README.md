@@ -15,7 +15,7 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d2mv0monu9sxbr.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d260ftxx3oiuim.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAgse8x" rel="nofollow">入口</a>
       <a href="http://t.cn/EAgsDyU" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAgse8x" rel="nofollow">入口</a>
@@ -59,7 +59,7 @@
 <hr>
 </div>
 <div id="div3">
-<a name="mao" target="_blank"></a>
+<a name="3" target="_blank"></a>
 <a name="order" id="order" class="anchor"></a>
 <div style="height:1000px"><a name="a3" class="anchor">&nbsp;</a></div>
 <div name='abc'></div>
