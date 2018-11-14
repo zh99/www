@@ -1,4 +1,4 @@
-<div id="div1">
+<a name="1" target="_blank"></a>
 <h3><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"></h3><br>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://due5w27oqs7a8.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAgse8x" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAgskG4" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAgsDs8" rel="nofollow">入口</a>
+      <a href="https://d1qlq69hf65hx2.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAgseD7" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAgseD7" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAgsDyU" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/vrhvcupcrn/uxyeg.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
