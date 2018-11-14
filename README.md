@@ -8,14 +8,14 @@
 ">一键翻墙软件</a></strong></p>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/ddf.jpg">
-<h4><p><strong>简易翻墙网址</strong></p></h4>
+<h4><strong>简易翻墙网址</strong></h4>
 <strong><a href="https://x.co/ddf">&nbsp;&#160;&nbsp;&#160;x.co/ddf</a></strong><br>
 <strong><a href="https://x.co/ddg">&nbsp;&#160;&nbsp;&#160;x.co/ddg</a></strong><br>
 <strong><a href="https://git.io/ccc">&nbsp;&#160;&nbsp;&#160;git.io/ccc</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://dd3turvo3noeb.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d38v5ozwyl9miz.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAD2avT" rel="nofollow">入口</a>
       <a href="http://t.cn/EAD2698" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAD26tu" rel="nofollow">入口</a>
