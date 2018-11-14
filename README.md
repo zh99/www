@@ -15,10 +15,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d3v08giggwntvq.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAgsDpL" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAgsDfQ" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EAgsDfQ" rel="nofollow">入口</a>
+      <a href="https://d235d8kbalpg1n.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAgsDnJ" rel="nofollow">入口</a>
+      <a href="http://t.cn/EAgsDs8" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAgsDyU" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/vrhvcupcrn/uxyeg.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
@@ -38,8 +38,7 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-</div>
-<div id="div2">
+<a name="2" target="_blank"></a>
 <h3>
 <p><strong>下载一键翻墙软件</strong></p>
 </h3>
@@ -57,12 +56,7 @@
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
 <p><a href="https://git.io/fxNjC" rel="nofollow">神州正道（网页版）</a></p>
 <hr>
-</div>
-<div id="div3">
 <a name="3" target="_blank"></a>
-<a name="order" id="order" class="anchor"></a>
-<div style="height:1000px"><a name="a3" class="anchor">&nbsp;</a></div>
-<div name='abc'></div>
 <h3>
 <p><strong>被墙新闻RSS自动同步</strong></p>
 </h3>
@@ -83,7 +77,7 @@
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news202.md">新唐人国际新闻</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news208.md">新唐人财经新闻</a></p>
 <hr>
-</div>
+<a name="4" target="_blank"></a>
 <h3>
 <p><strong>聚缘阁</strong></p>
 </h3>
@@ -132,6 +126,7 @@
 <a id="user-content-httpsgitiojygapk" class="anchor" href="#httpsgitiojygapk" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://git.io/jygapk" rel="nofollow">https://git.io/jygapk</a>
 </h3>
 <hr>
+<a name="5" target="_blank"></a>
 <h3><p><strong></strong></p></h3>
 <img src="https://github.com/szzd1/1/blob/master/t/01.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/03.jpg"><br>
