@@ -9,16 +9,17 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/mia.jpg">
 <p>&nbsp;&#160;简易翻墙网址</p>
-<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
+<strong><a href="https://git.io/.a">&nbsp;&#160;&nbsp;&#160;git.io/.a</a></strong><br>
+<strong><a href="https://git.io/.8">&nbsp;&#160;&nbsp;&#160;git.io/.8</a></strong><br>
 <strong><a href="https://x.co/ddf">&nbsp;&#160;&nbsp;&#160;x.co/ddf</a></strong><br>
 <strong><a href="https://x.co/ddg">&nbsp;&#160;&nbsp;&#160;x.co/ddg</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d21izwxwnmx29i.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/E26Bh0R" rel="nofollow">入口</a>
-      <a href="http://t.cn/E26BzhR" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E26BhuR" rel="nofollow">入口</a>
+      <a href="https://d3gtwhx1yfnj1m.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/E26BhI5" rel="nofollow">入口</a>
+      <a href="http://t.cn/E26B7zD" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E26B7ND" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/bqdsvsdcqj/btrfo.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
