@@ -1,4 +1,7 @@
 <a name="1" target="_blank"></a>
+<a name="7" target="_blank"></a>
+<a name="8" target="_blank"></a>
+<a name="9" target="_blank"></a>
 <img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
@@ -16,9 +19,9 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d383huc23al6gm.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/E2NtJh2" rel="nofollow">入口</a>
-      <a href="http://t.cn/E2NtJt0" rel="nofollow">入口</a><br>
+      <a href="https://d405hhhoucmol.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/E2NtJoO" rel="nofollow">入口</a>
+      <a href="http://t.cn/E2NtxuM" rel="nofollow">入口</a><br>
       <a href="http://t.cn/E2NtJh2" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/guriuscbt/bx.html" rel="nofollow">入口</a><br>
