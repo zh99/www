@@ -21,13 +21,13 @@
 <p>请尝试不同入口，直接翻墙</p>
       <a href="" rel="nofollow">入口</a>
       <a href="http://t.cn/E20QK0r" rel="nofollow">入口</a>
-      <a href="http://t.cn/E20QoW9" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E20QS0e" rel="nofollow">入口</a>
+      <a href="http://t.cn/E20Q9cX" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E20QoW9" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/cctyxndcs/ste.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/thgfwmbbnf/ajut.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/ubriqvprq/rmk.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/hkxkledqp/ti.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/gnjfdsecr/tcnk.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>请尝试不同入口，进入网门</p>
