@@ -19,15 +19,15 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://d2each4grvvmxh.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/E2kmc8H" rel="nofollow">入口</a>
-      <a href="http://t.cn/E2kmVXA" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/E2kmc8H" rel="nofollow">入口</a>
+      <a href="https://dllkwjyk8phsc.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/E2kmfS4" rel="nofollow">入口</a>
+      <a href="http://t.cn/E2kmfS4" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E2kmfS4" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/apiyedzrvc/zsql.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/yxdwazvzn/hxuok.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/tyyivpxgr/xf.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/wexmdpsyx/ik.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/xkknjjnlhy/en.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/tyyivpxgr/xf.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>请尝试不同入口，进入网门</p>
@@ -96,7 +96,7 @@
 <hr>
 <p>
 <a id="user-content-亚马逊镜像入口" class="anchor" href="#%E4%BA%9A%E9%A9%AC%E9%80%8A%E9%95%9C%E5%83%8F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>亚马逊镜像入口</p>
-<p>请逐一点击</p>
+<p>请逐一点击，你一定会成功翻墙</p>
 <p>
 <a id="user-content-入口一-入口二" class="anchor" href="#%E5%85%A5%E5%8F%A3%E4%B8%80-%E5%85%A5%E5%8F%A3%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><strong><a href="https://s3-ap-southeast-2.amazonaws.com/jyg1/jyg.html" rel="nofollow">入口一</a></strong> <strong><a href="https://s3.eu-west-2.amazonaws.com/jyg2/jyg.html" rel="nofollow">入口二</a></strong>
 </p>
