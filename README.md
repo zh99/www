@@ -22,7 +22,7 @@
       <a href="" rel="nofollow">入口</a>
       <a href="http://t.cn/EL1wjIJ" rel="nofollow">入口</a>
       <a href="http://t.cn/EL1wYLG" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/EL1wjWW" rel="nofollow">入口</a>
+      <a href="http://t.cn/EL1wYLG" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
