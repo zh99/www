@@ -20,8 +20,8 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
       <a href="" rel="nofollow">入口</a>
-      <a href="http://t.cn/ELdbjd0" rel="nofollow">入口</a>
-      <a href="http://t.cn/ELdbHVW" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/ELdbT6U" rel="nofollow">入口</a>
+      <a href="http://t.cn/ELdbYlg" rel="nofollow">入口</a><br>
       <a href="http://t.cn/ELdbjUL" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
