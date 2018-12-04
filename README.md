@@ -19,10 +19,10 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://dij0nnce5pf04.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://t.cn/Ey4odew" rel="nofollow">入口</a>
-      <a href="http://t.cn/Ey4ogQV" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/Ey4odoO" rel="nofollow">入口</a>
+      <a href="https://d11k9nkyqg22jd.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/Ey4ogtp" rel="nofollow">入口</a>
+      <a href="http://t.cn/Ey4odGH" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/Ey4ormg" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/nhisjbysle/off.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/kjeoelxsip/lqxez.html" rel="nofollow">入口</a>
