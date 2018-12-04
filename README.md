@@ -21,11 +21,11 @@
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://dy32q6z9b2zbj.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/Ey5ZdxQ" rel="nofollow">入口</a>
-      <a href="http://t.cn/Ey5ZdxQ" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/Ey5ZB7x" rel="nofollow">入口</a>
+      <a href="http://t.cn/Ey5ZB7x" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/Ey5Zr4K" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/tdpzpcsoa/gmryc.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/xrriawupsx/zw.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/uwmafdafu/wx.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/uoeybsbyl/mtie.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
