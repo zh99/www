@@ -19,14 +19,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://dpnfl74jxv4q7.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="https://mgox.pileofpounds.com/ah/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="https://d1f1p0rf7z7ha5.cloudfront.net/1" rel="nofollow">入口</a><br>
+      <a href="https://d1iqprsgyx3q0o.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d16cz1d6esnxif.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://rzxr.melbrotech.co.za/ah/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/gavwpmmdui/bl.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/cjfthxerp/ogn.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/oocsbowwws/kjot.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/gdxdxbdziw/tnu.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/rjupufbti/yccnj.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/bkhmkxgnb/ieoal.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/fjcmpvfslv/yawym.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/vzesnrsxnh/ej.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/dvyqlxyjjq/bbpod.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -158,6 +158,7 @@
 </h1>
 <img src="https://github.com/szzd1/1/blob/master/t/01.jpg">
 <h1><strong><a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?ogQuit.aspx&from=852" rel="nofollow">点击这里 退出中共</a></strong></h1><br>
+<br>
 <a name="6" target="_blank"></a>
 <img src="https://github.com/szzd1/1/blob/master/t/03.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/04.jpg"><br>
