@@ -19,15 +19,15 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="http://t.cn/EymmUBw" rel="nofollow">入口</a>
-      <a href="https://d1zusrdfusm0nv.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="https://d1cpubvc5lhm96.cloudfront.net/1" rel="nofollow">入口</a><br>
+      <a href="https://dfa2fpeu8kif9.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d22vpd1x4wu1vd.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/EymmUMj" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/oaowzlktrb/go.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/bkhmkxgnb/ieoal.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/gavwpmmdui/bl.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/cjfthxerp/ogn.html" rel="nofollow">入口</a><br>
       <a href="https://s3.amazonaws.com/ecoybspbb/rk.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/vzesnrsxnh/ej.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/xbrjeftkmb/cbhw.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/dvyqlxyjjq/bbpod.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>请尝试不同入口，进入网门</p>
@@ -157,7 +157,7 @@
 <p><strong>数点梅花天地春</strong></p>
 </h1>
 <img src="https://github.com/szzd1/1/blob/master/t/01.jpg"><br>
-<h1><p><strong><a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?ogQuit.aspx&from=852" rel="nofollow">点击这里 退出中共</a></strong></p></h1>
+<h1><strong><a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?ogQuit.aspx&from=852" rel="nofollow">点击这里 退出中共</a></strong></h1><br>
 <a name="6" target="_blank"></a>
 <img src="https://github.com/szzd1/1/blob/master/t/03.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/04.jpg"><br>
