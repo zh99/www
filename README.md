@@ -21,9 +21,9 @@
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://d378z10rdpqg35.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="https://d20rz70258mnvf.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="https://d2eoa6010n78b2.cloudfront.net/1" rel="nofollow">入口</a><br>
+      <a href="https://d1epwtkrxq3on3.cloudfront.net/1" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/yymtejdtyq/ym.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/bhdhvmndsk/mtxc.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/sfksyhngi/lt.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
