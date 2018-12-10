@@ -19,15 +19,15 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://bit.ly/2QjYjAt" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2PtAeSr" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2C0LySE" rel="nofollow">入口</a><br>
+      <a href="https://d2a644kc9h0f49.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://aogq.davisempresas.cl/ybow/http://dongtaiwang.com/" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2L8frDi" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/auivwaxfxs/fsls.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/ywngtbmxd/kwg.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/nokxvtgspr/qjfyh.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/juyppfdipw/xrbl.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/rbyslctgga/iexx.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/ujxzhtpolo/dj.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>请尝试不同入口，进入网门</p>
