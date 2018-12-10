@@ -19,9 +19,9 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://bit.ly/2Ps9qlr" rel="nofollow">入口</a>
-      <a href="https://v2h9tp5zt4.execute-api.us-east-1.amazonaws.com/e" rel="nofollow">入口</a>
-      <a href="https://np1bcr3s49.execute-api.us-east-1.amazonaws.com/acv" rel="nofollow">入口</a><br>
+      <a href="https://d2zh1jdgkk6j1v.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2SG3V4Z" rel="nofollow">入口</a>
+      <a href="https://f2ojk0z114.execute-api.us-east-1.amazonaws.com/ja" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/juoiwheet/zgdrm.html" rel="nofollow">入口</a><br>
