@@ -12,20 +12,20 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/mia.jpg">
 <p>&nbsp;&#160;简易翻墙网址</p>
-<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/.a</a></strong><br>
-<strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/.8</a></strong><br>
-<strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;x.co/ddf</a></strong><br>
-<strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;x.co/ddg</a></strong><br>
+<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
+<strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
+<strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;git.io/*5</a></strong><br>
+<strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;git.io/*7</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://kxch.systemventas.com/cy/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="http://t.cn/EUZtQud" rel="nofollow">入口</a>
-      <a href="https://8crnpstyzi.execute-api.us-east-1.amazonaws.com/xvf" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EUZtRfP" rel="nofollow">入口</a>
+      <a href="http://t.cn/EUZt8Qv" rel="nofollow">入口</a>
+      <a href="https://ubux.pizzamonster.org/cy/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/vdlizwszu/df.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/ivegmesmb/bdm.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/fviicnlnf/pk.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/aivpumlpin/vsz.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/qmazaybyg/stjjc.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
