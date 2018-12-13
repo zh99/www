@@ -20,8 +20,8 @@
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://ixqypsy15j.execute-api.us-east-1.amazonaws.com/xb" rel="nofollow">入口</a>
-      <a href="https://qjud.rivermile.co.za/cpbeo/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="https://clux.visibleblue.net/cpbeo/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
+      <a href="https://tinyurl.com/y75bsfl4" rel="nofollow">入口</a>
+      <a href="https://yyqp.townmedia.co.za/cpbeo/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/lqkjdwugc/jkp.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/jzsrtjigdj/njjhl.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/dqtpxlqdv/icqmn.html" rel="nofollow">入口</a><br>
