@@ -19,15 +19,15 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="http://t.cn/EU66Y5f" rel="nofollow">入口</a>
-      <a href="https://0uyldcfu8l.execute-api.us-east-1.amazonaws.com/i" rel="nofollow">入口</a>
-      <a href="https://60y4u3hcf6.execute-api.us-east-1.amazonaws.com/tg" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/ttdybwymm/wh.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/xryuownsqd/cxky.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/gjzxphkmkw/ntr.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/xwazlotjcv/git.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/ntaohlrgp/ahw.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/mlltydycwy/hoz.html" rel="nofollow">入口</a><br>
+      <a href="https://dm2a8qhqpc.execute-api.us-east-1.amazonaws.com/rgs" rel="nofollow">入口</a>
+      <a href="https://hjdm.rigaprecast.com/jdoxe/http://dongtaiwang.com/" rel="nofollow">入口</a>
+      <a href="http://t.cn/EU66YNn" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/fldjanwmn/tc.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/gqunlamdl/fkqd.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/uzgwbgacha/gq.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.us-west-1.amazonaws.com/ollrounqf/ez.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/lkfmvkkodh/hoe.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/rcovzxxfo/wi.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>请尝试不同入口，进入网门</p>
