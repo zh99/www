@@ -19,15 +19,15 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://xpoa.veriperfect.com/civht/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="https://qagg.altinbasak.info/civht/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="https://dikx.barrielloyd.com/civht/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/qttowjjmo/zrdz.html" rel="nofollow">入口</a>
+      <a href="https://gxrg.topscoliauto.ro/civht/http://dongtaiwang.com/" rel="nofollow">入口</a>
+      <a href="https://gxrg.topscoliauto.ro/civht/http://dongtaiwang.com/" rel="nofollow">入口</a>
+      <a href="https://gxrg.topscoliauto.ro/civht/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/fhqghzppj/umj.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/waaeslcxi/ewnjs.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/kahavqguj/fkmya.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/pzvgmobatu/sl.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/mqxjkyldyf/fut.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/ejmdqwtyw/qqj.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/iaxzrlkceq/eevpv.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/dcxytjcte/qdgm.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>请尝试不同入口，进入网门</p>
