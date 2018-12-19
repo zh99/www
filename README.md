@@ -10,7 +10,7 @@
 <strong>鉴于GFW封锁不断升级，强烈推荐使用<a href="https://github.com/szzd1/2/blob/master/README.md?u#%E4%B8%8B%E8%BD%BD%E4%B8%80%E9%94%AE%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6
 ">一键翻墙软件</a></strong><br>
 <hr>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/mia.jpg">
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/gif2.gif">
 <p>&nbsp;&#160;简易翻墙网址</p>
 <strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
 <strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
@@ -19,12 +19,12 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://j.mp/2SUHgSo" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2SUHgSo" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2UVCiH1" rel="nofollow">入口</a><br>
+      <a href="https://bit.ly/2A7KU4r" rel="nofollow">入口</a>
+      <a href="https://j.mp/2A7KU4r" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2A7KU4r" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/hdxybxucf/mhal.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/tkoolbflp/lgn.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/bvykugaup/cbj.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/scuzdscszs/rv.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/mylpcwqur/vqgo.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/ygwhxuxdow/pfqlx.html" rel="nofollow">入口</a><br>
