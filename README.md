@@ -19,9 +19,9 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://klzd.createo.com.au/mno/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="https://runi.njstthomas.org/mno/http://dongtaiwang.com/" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4xUh2U" rel="nofollow">入口</a><br>
+      <a href="https://dhzi.mattlucas.info/mno/http://dongtaiwang.com/" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4xUPNg" rel="nofollow">入口</a>
+      <a href="https://dhzi.mattlucas.info/mno/http://dongtaiwang.com/" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/ogaiebswsa/wcoxx.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/pgcygmdzw/xxl.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/qxxvwzwjfc/ys.html" rel="nofollow">入口</a><br>
