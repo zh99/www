@@ -19,13 +19,13 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://kdd483f9vg.execute-api.us-east-1.amazonaws.com/ed" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4fZ6nK" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2A5EkLK" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/gtaqmafbac/gsuts.html" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2BzR8Kn" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4fZJ4W" rel="nofollow">入口</a>
+      <a href="https://g0ajg56q00.execute-api.us-east-1.amazonaws.com/p" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/brteulbfl/zp.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/bhozmkjsl/vdcoo.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/uddgycyfj/aqww.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/fiwttcstnu/ywve.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/hvgzhyykm/xpop.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/vmunmgpbkm/wp.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/uzhzxtrvj/jlh.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/brubuhhmmf/cwduh.html" rel="nofollow">入口</a><br>
 <hr>
