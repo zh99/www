@@ -19,14 +19,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>请尝试不同入口，直接翻墙</p>
-      <a href="https://j.mp/2QLWVHf" rel="nofollow">入口</a>
-      <a href="https://j.mp/2PWks2C" rel="nofollow">入口</a>
-      <a href="https://j.mp/2GD1C1g" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/gmxtwkprov/dh.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/izolyfsgdl/hzp.html" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2V4jaqn" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4orQd6" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2GNDwkH" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/wnrxhsmvlo/glaym.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/lomxocccfn/derha.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/nqiqqrjfa/nuxlk.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/rkqlfpimju/yxglp.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/rarlqcttm/xohgf.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/zemigquah/big.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
@@ -103,9 +103,6 @@
 <p><img src="https://raw.githubusercontent.com/hao369/a/master/wx2.jpg" alt=""></p>
 <p>
 <a id="user-content-动态网高速入口" class="anchor" href="#%E5%8A%A8%E6%80%81%E7%BD%91%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://cjoq7mog6l.execute-api.ap-southeast-1.amazonaws.com/987o/?id=2" rel="nofollow">动态网高速入口</a><img src="https://raw.githubusercontent.com/hao369/a/master/jygdl.gif" alt="">
-</p>
-<p>
-<a id="user-content-聚缘阁高速入口" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://19kc3hh2ec.execute-api.ap-northeast-2.amazonaws.com/re" rel="nofollow">聚缘阁高速入口</a><img src="https://raw.githubusercontent.com/hao369/a/master/jyg.gif" alt="">
 </p>
 <p>
 <a id="user-content-新唐人网络直播" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E7%BD%91%E7%BB%9C%E7%9B%B4%E6%92%AD" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://f0gwphumt5.execute-api.ap-northeast-2.amazonaws.com/6q4w4v" rel="nofollow">新唐人网络直播</a><img src="https://raw.githubusercontent.com/hao369/a/master/jygtj.gif" alt="">
