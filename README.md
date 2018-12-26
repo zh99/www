@@ -43,15 +43,15 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E434Wt0" rel="nofollow">入口</a>
-      <a href="https://j.mp/2ReJgI5" rel="nofollow">入口</a>
-      <a href="https://j.mp/2GQWQgX" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/txwynhoap/puds.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/bgvfyhsmac/dczo.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/prnlpajwyc/zybfj.html" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E435Uxk" rel="nofollow">入口</a>
+      <a href="https://j.mp/2LF5ZId" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2Q0zeWr" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/mxtsmyzsu/gnp.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/oegiygiyp/lu.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/fowwpedrjg/sqnv.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/zohxrmqjfd/kbefe.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/eszvshaeh/xti.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/avjypvozr/sf.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
