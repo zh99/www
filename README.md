@@ -43,9 +43,9 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E4pHXy3" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4pOghB" rel="nofollow">入口</a>
-      <a href="https://j.mp/2LvpWAY" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E4pBfCh" rel="nofollow">入口</a>
+      <a href="https://j.mp/2ELTbyK" rel="nofollow">入口</a>
+      <a href="https://j.mp/2AduqaV" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/bhfpdowtk/ed.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/snitbvpqvg/ylzc.html" rel="nofollow">入口</a><br>
