@@ -44,7 +44,7 @@
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news202.md">新唐人国际新闻</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news208.md">新唐人财经新闻</a></p>
 <hr>
-<h1><p><strong>直连翻墙网址/strong></p></h1>
+<h1><p><strong>直连翻墙网址</strong></p></h1>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
 <strong>本页所有入口网址是动态的，如果打不开需刷新一下</strong><br>
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
@@ -54,13 +54,13 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://bit.ly/2rSpmEg" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2ELtbmj" rel="nofollow">入口</a>
-      <a href="https://j.mp/2ENy4fJ" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E4ulppD" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4uWVnq" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2rR7N7w" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vlsyzzmmb/muhg.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/opisbeczgd/mu.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/uzyaokhnr/arixp.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/uhxvqntln/mq.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/nhajkeayt/vopt.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/cnfnlklxpw/ahozz.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/uwxeyndia/uvnzw.html" rel="nofollow">入口</a><br>
 <hr>
