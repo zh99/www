@@ -19,22 +19,12 @@
 <hr>
 <a name="3" target="_blank"></a>
 <h1><p><strong>被墙新闻RSS同步</strong></p></h1>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/djy.jpg"><br>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc412.md">大纪元美国新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc418.md">大纪元国际新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc974.md">大纪元欧洲频道</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc423.md">大纪元专栏文集</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc993.md">大纪元自由广场</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news207.md">新唐人评论</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news204.md">新唐人大陆新闻</a></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/xtr.jpg"><br>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news206.md">新唐人台湾新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news205.md">新唐人港澳新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news203.md">新唐人美国新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news202.md">新唐人国际新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news208.md">新唐人财经新闻</a></p>
+<p><a href="https://github.com/szzd1/d/blob/master/README.md#1">世界各地新闻</a></p>
 <hr>
 <h1><p><strong>直连翻墙网址</strong></p></h1>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
@@ -53,14 +43,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2CwANrn" rel="nofollow">入口</a>
-      <a href="https://j.mp/2Q0zeWr" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2Vbnh3J" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E4aSLOT" rel="nofollow">入口</a>
+      <a href="http://t.cn/E43tkLO" rel="nofollow">入口</a>
+      <a href="https://j.mp/2ELFNuB" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vlsyzzmmb/muhg.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/uzyaokhnr/arixp.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/opisbeczgd/mu.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/uhxvqntln/mq.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/urmvkwdqwu/dyaqz.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/igpofodfvz/mrgs.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/qqiqrsczvw/cf.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/uwxeyndia/uvnzw.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
