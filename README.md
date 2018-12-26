@@ -43,14 +43,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E49LQOK" rel="nofollow">入口</a>
-      <a href="https://j.mp/2V7ij87" rel="nofollow">入口</a>
-      <a href="https://j.mp/2LuqsiL" rel="nofollow">入口</a><br>
+      <a href="https://bit.ly/2QIbwU1" rel="nofollow">入口</a>
+      <a href="http://t.cn/E49LRNB" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2PWL7wp" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/gkzgxmlwao/be.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/vqawfbive/chlom.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vlsyzzmmb/muhg.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/pvjnngfms/yca.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/geqashqjw/gdu.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
