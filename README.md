@@ -3,7 +3,6 @@
 <a name="8" target="_blank"></a>
 <a name="9" target="_blank"></a>
 <img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br>
-<h1><p><strong>简易翻墙网址</p></strong></p></h1>
 <strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
 <strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
 <strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;git.io/*5</a></strong><br>
@@ -54,14 +53,14 @@
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2SibLSs" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2EN6vlE" rel="nofollow">入口</a>
-      <a href="https://j.mp/2rTJ5Dz" rel="nofollow">入口</a><br>
+      <a href="https://bit.ly/2EKmDV2" rel="nofollow">入口</a>
+      <a href="https://j.mp/2V8S2GL" rel="nofollow">入口</a>
+      <a href="https://j.mp/2ELy534" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vlsyzzmmb/muhg.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/pvjnngfms/yca.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/opisbeczgd/mu.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/nhajkeayt/vopt.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/sticpdlumk/ktnzk.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/uhxvqntln/mq.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/qqiqrsczvw/cf.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/uwxeyndia/uvnzw.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
