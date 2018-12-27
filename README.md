@@ -3,6 +3,13 @@
 <a name="8" target="_blank"></a>
 <a name="9" target="_blank"></a>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/0.gif"><br>
+<p>&nbsp;&#160;简易翻墙网址</p>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/gif2.gif">
+<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
+<strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
+<strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;git.io/*5</a></strong><br>
+<strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;git.io/*7</a></strong><br>
+<hr>
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
 <p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/um.apk?raw=true" rel="nofollow">无界浏览（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/u2.jpg"><br>
@@ -33,25 +40,17 @@
 <strong>如果国内浏览器打不开，用IE、Firefox、Chrome打开</strong><br>
 <strong>鉴于GFW封锁不断升级，强烈推荐使用<a href="https://github.com/szzd1/2/blob/master/README.md?u#%E4%B8%8B%E8%BD%BD%E4%B8%80%E9%94%AE%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6
 ">一键翻墙软件</a></strong><br>
-<hr>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/gif2.gif">
-<p>&nbsp;&#160;简易翻墙网址</p>
-<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
-<strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
-<strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;git.io/*5</a></strong><br>
-<strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;git.io/*7</a></strong><br>
-<hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E4pGArt" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4pyKFH" rel="nofollow">入口</a>
-      <a href="https://j.mp/2LxdQXX" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/jkeqlslixi/miy.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/ymmtugxdt/aq.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/eicmxjkyu/tvf.html" rel="nofollow">入口</a><br>
+      <a href="https://j.mp/2EK24Ji" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4p5PAZ" rel="nofollow">入口</a>
+      <a href="https://j.mp/2T7rrHZ" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/jabytibed/ny.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/nltupaxfub/scvfr.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/qkkdurqmsq/rpaua.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/yxmgkugfy/ifdwo.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/fjfxzyfcsn/jokbr.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/vtmkvafxb/vnc.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/rhkcmutwq/ac.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
