@@ -3,7 +3,7 @@
 <a name="8" target="_blank"></a>
 <a name="9" target="_blank"></a>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/0.gif"><br>
-<p>&nbsp;&#160;简易翻墙网址</p>
+<p><strong>&nbsp;&#160;简易翻墙网址</strong></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/gif2.gif">
 <strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
 <strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
@@ -39,18 +39,18 @@
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
 <strong>如果国内浏览器打不开，用IE、Firefox、Chrome打开</strong><br>
 <strong>鉴于GFW封锁不断升级，强烈推荐使用<a href="https://github.com/szzd1/2/blob/master/README.md?u#%E4%B8%8B%E8%BD%BD%E4%B8%80%E9%94%AE%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6
-">一键翻墙软件</a></strong><br>
+">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2LvGc4P" rel="nofollow">入口</a>
-      <a href="https://j.mp/2EDoXxk" rel="nofollow">入口</a>
-      <a href="https://j.mp/2LuId1e" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/pylnqxjyki/dk.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/ymmtugxdt/aq.html" rel="nofollow">入口</a>
+      <a href="https://j.mp/2ELTbyK" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2LvpWRu" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4pHX9K" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/jabytibed/ny.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/nltupaxfub/scvfr.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/eicmxjkyu/tvf.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/vtmkvafxb/vnc.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/lprymvosiq/xebtt.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/ezyamfnac/vu.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
