@@ -11,12 +11,12 @@
 <strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;git.io/*7</a></strong><br>
 <hr>
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
-<p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/um.apk?raw=true" rel="nofollow">无界浏览（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/u2.jpg"><br>
-<p><a href="https://git.io/ogatea2" rel="nofollow">网门（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/wm.jpg"><br>
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master//extras/SzzdOgate.apk?fldfh" rel="nofollow">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/sz.jpg"><br>
+<p><a href="https://git.io/ogatea2" rel="nofollow">网门（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/wm.jpg"><br>
+<p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/um.apk?raw=true" rel="nofollow">无界浏览（手机版）</a></p>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/u2.jpg"><br>
 <p><a href="https://raw.githubusercontent.com/szzd1/szzd1.github.io/master/szzd/iNTD_TV.zip" rel="nofollow">新唐人电视（手机版）</a></p>
 <p><a href="https://git.io/fgp" rel="nofollow">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <p><a href="https://git.io/vEJlj" rel="nofollow">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
@@ -42,13 +42,13 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2EKNXn9" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4pj1xp" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4pHX9K" rel="nofollow">入口</a><br>
-      <a href="https://s3.us-west-1.amazonaws.com/nrslogxzr/ww.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/znfbbfhmf/eey.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/ooxpzjulyj/lzw.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/gjkdqskqip/fw.html" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2R6OO7x" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2AduqaV" rel="nofollow">入口</a>
+      <a href="https://j.mp/2QM3IRe" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/tmpuuanevn/xwqyg.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/ablemzysh/akn.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/ekfokbrgl/wzbz.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/aijuhkseeo/ywf.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/jotodxyal/rmq.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ztgpuutuct/bmese.html" rel="nofollow">入口</a><br>
 <hr>
