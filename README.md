@@ -42,12 +42,12 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E4ESVjC" rel="nofollow">入口</a>
-      <a href="https://j.mp/2GCv0ET" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2LyyoiN" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/enxqjijnk/utndf.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/liukmjzcki/xw.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/ozyykqfqwx/zaqn.html" rel="nofollow">入口</a><br>
+      <a href="https://bit.ly/2RdP3NV" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4EKQWq" rel="nofollow">入口</a>
+      <a href="https://j.mp/2AcXy2c" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/zfafdbtvrc/vhqti.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-1.amazonaws.com/rfakqivhho/ykyn.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/swcrsiyqzj/sq.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/jpnqoopca/ien.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/mkrxtjbpbl/pxskq.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/pjavksonz/goa.html" rel="nofollow">入口</a><br>
@@ -85,12 +85,6 @@
 <p><strong>迷途往返终未迟，悬崖勒马结善缘。</strong></p>
 <p>
 <a id="user-content-动态网高速入口" class="anchor" href="#%E5%8A%A8%E6%80%81%E7%BD%91%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://30m9m99hga.execute-api.us-east-1.amazonaws.com/pfd/?id=2" rel="nofollow">动态网高速入口</a><img src="https://raw.githubusercontent.com/hao369/a/master/jygdl.gif" alt="">
-</p>
-<p>
-<a id="user-content-聚缘阁高速入口" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://59lws3tcj7.execute-api.ap-northeast-1.amazonaws.com/74885" rel="nofollow">聚缘阁高速入口</a><img src="https://raw.githubusercontent.com/hao369/a/master/jyg.gif" alt="">
-</p>
-<p>
-<a id="user-content-新唐人网络直播" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E7%BD%91%E7%BB%9C%E7%9B%B4%E6%92%AD" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://0yn0ool014.execute-api.ap-northeast-1.amazonaws.com/xxxxff" rel="nofollow">新唐人网络直播</a><img src="https://raw.githubusercontent.com/hao369/a/master/jygtj.gif" alt="">
 </p>
 <p>
 <a id="user-content-新唐人高速入口" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E9%AB%98%E9%80%9F%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://30m9m99hga.execute-api.us-east-1.amazonaws.com/pfd/?id=5" rel="nofollow">新唐人高速入口</a>
