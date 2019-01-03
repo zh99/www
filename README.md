@@ -42,9 +42,9 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2PVBf5S" rel="nofollow">入口</a>
-      <a href="https://j.mp/2Sizsdi" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2R8D4Br" rel="nofollow">入口</a><br>
+      <a href="https://j.mp/2LAkTiQ" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2V4iP75" rel="nofollow">入口</a>
+      <a href="https://j.mp/2rPPAr3" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/oziviaavs/trcdr.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/rszkiunsxb/tb.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
