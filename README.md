@@ -42,14 +42,14 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://bit.ly/2BKBU5t" rel="nofollow">入口</a>
-      <a href="https://j.mp/2EHIw8t" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4orwL2" rel="nofollow">入口</a><br>
+      <a href="https://j.mp/2rSEZLS" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2Ab7j0K" rel="nofollow">入口</a>
+      <a href="https://j.mp/2Ab7nO2" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/wlhzccbhn/kiu.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/jqrhvurukg/zg.html" rel="nofollow">入口</a><br>
       <a href="https://s3.us-west-1.amazonaws.com/rxxxxeskg/hf.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/aewyhoiedd/yzieg.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/bpwrscnvs/auy.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
