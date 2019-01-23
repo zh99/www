@@ -42,12 +42,12 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://bit.ly/2GDd9h4" rel="nofollow">入口</a>
-      <a href="https://j.mp/2BB7oLa" rel="nofollow">入口</a>
-      <a href="https://j.mp/2rNqVn2" rel="nofollow">入口</a><br>
+      <a href="https://j.mp/2rRZrNg" rel="nofollow">入口</a>
+      <a href="https://j.mp/2RbnN2E" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2T7ijn0" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/fvwcopnypf/tahy.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ltdchwsej/qhtj.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/nmqjpilbzq/ezlhi.html" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/zklsnbfalv/kh.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ltjzssjpl/kcy.html" rel="nofollow">入口</a><br>
