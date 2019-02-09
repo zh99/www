@@ -42,13 +42,13 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2V91WYE" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2BFyL6V" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2rS0ahf" rel="nofollow">入口</a><br>
+      <a href="https://j.mp/2V6ww5o" rel="nofollow">入口</a>
+      <a href="https://j.mp/2EHlpKh" rel="nofollow">入口</a>
+      <a href="https://j.mp/2EGqbb8" rel="nofollow">入口</a><br>
       <a href="" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/qszmhjsmmu/yan.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/uvtgwqcoqu/pta.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/gyftbstswr/mdqx.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/mohjnjmdfr/qxsmz.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/sppquzdres/var.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/nimamstvel/fylmd.html" rel="nofollow">入口</a><br>
 <hr>
