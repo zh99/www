@@ -42,14 +42,14 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E492HPr" rel="nofollow">入口</a>
-      <a href="https://j.mp/2QQCUiQ" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2T7AoBm" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/E4923vf" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2LyI2lq" rel="nofollow">入口</a>
+      <a href="https://j.mp/2AeAcZV" rel="nofollow">入口</a><br>
       <a href="https://s3.ca-central-1.amazonaws.com/iqeeictooc/xh.html" rel="nofollow">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/mgofaingi/unw.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/izvwquost/wys.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-1.amazonaws.com/vseimcjev/jkl.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/yuzqvvpew/mf.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/jgwsciriv/xecdo.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
