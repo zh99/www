@@ -42,14 +42,14 @@
 ">一键翻墙软件</a></strong><br><br>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
-      <a href="http://t.cn/E4EfcHz" rel="nofollow">入口</a>
-      <a href="http://t.cn/E4EqncL" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2ELAVWn" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/qrjouzhgi/wzs.html" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4E6r7a" rel="nofollow">入口</a>
+      <a href="http://t.cn/E4EMIMc" rel="nofollow">入口</a>
+      <a href="https://bit.ly/2GCv0ET" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/jkybxqehzj/lbvid.html" rel="nofollow">入口</a>
       <a href="https://s3.ap-northeast-1.amazonaws.com/zcuueimtgt/qipdk.html" rel="nofollow">入口</a>
       <a href="" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/bkougfngm/lr.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/azfwnklmu/tmdw.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/tgzmunmjyy/esjh.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/gsngfjtqd/usiqu.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/bhrkrbpef/fsas.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
