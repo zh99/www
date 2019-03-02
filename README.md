@@ -3,13 +3,6 @@
 <a name="8" target="_blank"></a>
 <a name="9" target="_blank"></a>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/fq1.jpg"><br>
-<p><strong>&nbsp;&#160;简易翻墙网址</strong></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/gif2.gif">
-<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
-<strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
-<strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;git.io/*5</a></strong><br>
-<strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;git.io/*7</a></strong><br>
-<hr>
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master//extras/SzzdOgate.apk?fldfh" rel="nofollow">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/sz.jpg"><br>
@@ -40,17 +33,12 @@
 <strong>如果国内浏览器打不开，用IE、Firefox、Chrome打开</strong><br>
 <strong>鉴于GFW封锁不断升级，强烈推荐使用<a href="https://github.com/szzd1/2/blob/master/README.md?u#%E4%B8%8B%E8%BD%BD%E4%B8%80%E9%94%AE%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6
 ">一键翻墙软件</a></strong><br><br>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
-<p>逐一点击，你一定会成功翻墙</p>
-      <a href="https://j.mp/2Lw2OCp" rel="nofollow">入口</a>
-      <a href="https://bit.ly/2EIbZiv" rel="nofollow">入口</a>
-      <a href="https://j.mp/2EBywNg" rel="nofollow">入口</a><br>
-      <a href="https://s3.ca-central-1.amazonaws.com/qjdmsjbhkz/jk.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/auhijwjniv/wsddw.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/xgszpkwgct/owc.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/wqxtllzrg/zbbfk.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ipxrtqvleq/mbbt.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/qyzocxkmzv/fathi.html" rel="nofollow">入口</a><br>
+<p><strong>&nbsp;&#160;简易翻墙网址</strong></p>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/gif2.gif">
+<strong><a href="https://git.io/*a">&nbsp;&#160;&nbsp;&#160;git.io/*a</a></strong><br>
+<strong><a href="https://git.io/*2">&nbsp;&#160;&nbsp;&#160;git.io/*2</a></strong><br>
+<strong><a href="https://git.io/*5">&nbsp;&#160;&nbsp;&#160;git.io/*5</a></strong><br>
+<strong><a href="https://git.io/*7">&nbsp;&#160;&nbsp;&#160;git.io/*7</a></strong><br>
 <hr>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
 <p>逐一点击，你一定会成功翻墙</p>
