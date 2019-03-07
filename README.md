@@ -20,12 +20,10 @@
 <p><a href="https://git.io/fxNjC" rel="nofollow">神州正道（网页版）</a></p>
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓（电视机顶盒版）</a></p>
 <hr>
-<h1><p><strong>被墙新闻RSS同步</strong></p></h1>
+<h1><p><strong>国内看不到的新闻同步</strong></p></h1>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/djy.jpg"><br>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news204.md">新唐人大陆新闻</a></p>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/xtr.jpg"><br>
 <p><a href="https://github.com/szzd1/d/blob/master/README.md#1">世界各地新闻</a></p>
 <hr>
 <h1><p><strong>直连翻墙网址</strong></p></h1>
