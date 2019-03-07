@@ -21,6 +21,7 @@
 <p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓（电视机顶盒版）</a></p>
 <hr>
 <h1><p><strong>国内看不到的新闻同步</strong></p></h1>
+<p><a href="https://github.com/szzd1/g/tree/master/README.md#1">九评共产党</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/news204.md">新唐人大陆新闻</a></p>
