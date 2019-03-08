@@ -7,7 +7,7 @@
 <a name="9" target="_blank"></a>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/fq1.jpg"><br>
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
-<p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master//extras/SzzdOgate.apk?fldfh" rel="nofollow">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://git.io/vQjqe" rel="nofollow">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/sz.jpg"><br>
 <p><a href="https://git.io/ogatea2" rel="nofollow">网门（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/um.apk?raw=true" rel="nofollow">无界浏览（手机版）</a></p>
@@ -16,7 +16,7 @@
 <p><a href="https://git.io/vEJlj" rel="nofollow">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <p><a href="https://raw.githubusercontent.com/szzd1/szzd1.github.io/master/szzd/iPPOTV.zip">爱博电视（电脑版）</a></p>
 <p><a href="https://git.io/fxNjC" rel="nofollow">神州正道（网页版）</a></p>
-<p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras//SzzdOgateTV.apk?dfh" rel="nofollow">神州正道安卓（电视机顶盒版）</a></p>
+<p><a href="https://git.io/vAonz" rel="nofollow">神州正道安卓（电视机顶盒版）</a></p>
 <hr>
 <h1><p><strong>国内看不到的新闻同步</strong></p></h1>
 <p><a href="https://github.com/szzd1/g/tree/master/README.md#1">九评共产党</a></p>
