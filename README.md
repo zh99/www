@@ -21,6 +21,7 @@
 <p><a href="https://github.com/szzd1/g/tree/master/README.md#1">九评共产党</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/nsc422.md">大纪元社论</a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
+<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/prog1138.md?t=03110636">新唐人中国时局 </a></p>
 <p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/prog204.md?t=03110636">新唐人大陆新闻</a></p>
 <p><a href="https://github.com/szzd1/d/blob/master/README.md#1">世界各地新闻</a></p>
 <hr>
