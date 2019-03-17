@@ -7,7 +7,7 @@
 <a name="7" target="_blank"></a>
 <a name="8" target="_blank"></a>
 <a name="9" target="_blank"></a>
-<img src="https://raw.githubusercontent.com/szzd1/1/master/t/fq0.jpg"><br>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/fq1.jpg"><br>
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
 <p><a href="https://git.io/vQjqe">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd1/1/master/t/sz.jpg"><br>
