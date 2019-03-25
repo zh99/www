@@ -20,12 +20,12 @@
 <p><a href="https://git.io/vAonz">神州正道安卓（电视机顶盒版）</a></p>
 <hr>
 <h1><p><strong>国内看不到的新闻同步</strong></p></h1>
-<p><a href="https://github.com/szzd1/g/blob/master/README.md?dfh#1">九评共产党</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc422.md?dfh">大纪元社论</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes//nsc413.md?djy">大纪元大陆新闻</a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/prog1138.md?t=03110636">新唐人中国时局 </a></p>
-<p><a href="https://github.com/gfw-breaker/banned-news/blob/master/indexes/prog204.md?t=03110636">新唐人大陆新闻</a></p>
-<p><a href="https://github.com/szzd1/d/blob/master/README.md#1">世界各地新闻</a></p>
+<p><a href="https://git.io/fjJ5Z">九评共产党</a></p>
+<p><a href="https://git.io/fjJ5n">大纪元社论</a></p>
+<p><a href="https://git.io/fjJ5c">大纪元大陆新闻</a></p>
+<p><a href="https://git.io/fjJ5l">新唐人中国时局 </a></p>
+<p><a href="https://git.io/fjJ54">新唐人大陆新闻</a></p>
+<p><a href="https://git.io/fjJ5R">世界各地新闻</a></p>
 <hr>
 <h1><p><strong>直连翻墙网址</strong></p></h1>
 <strong>可向 fr45tr@gmail.com 索取推广网址。</strong><br>
